@@ -54,17 +54,17 @@ I was often excited about the story, because you get chased by these magic samou
 You felt the love in there, but I think they spent a tad too much thinking & developing on those bits, because honestly, the performance on my PS4 were utter trash.
 There were some scenes which - I think - dropped under 10 FPS. It was very infuriating, and breaks every fluence of the game or scene storywise.
 
-This was one major nerd-killer for me, but then it started adding the very clunky controls on climbing on top of Trico. Often in stress situations where you jump onto Trico and completely miss. Or when you try to climb on him, but he moves, so you're stuck in this endless loop whilst being under his armpits.
+This was one major nerd-killer for me, but then it started adding the very clunky controls for climbing on top of Trico. Often in stressy situations where you jump onto Trico and completely miss. Or when you try to climb on him, but he moves, so you're stuck in this endless loop whilst being under his armpits.
 Weird situations where the camera angle is stuck and you get a 2/3 second freeze and the camera turns black while it tries to reset itself. Especially in cramped situations with this huge bus-like character.
-Other occurrences, pointing towards a specific point, where you're quite sure Trico should react to, and it's absolutely doing nothing, where I don't think the "Trico is not trained enough"-point is valid.
-I had some other annoyances, like obvious "triggers" weren't responding correctly. I more then once found myself yelling "10 YEARS OF DEVELOPMENT PEOPLE".
+In other occurrences, pointing towards a specific point, where you're quite sure Trico should react to, and it's absolutely doing nothing, where I don't think the "Trico is not trained enough"-point is valid.
+I had some other annoyances, like obvious "triggers" that weren't responding correctly. I more then once found myself yelling "10 YEARS OF DEVELOPMENT PEOPLE".
 
 ## The verdict
 
 Now this is an important part. The verdict.
 Would I advise you to play this game? Totally, but ... It depends on your gaming style, are you into these kind of games, can you deal with such annoyances, because if you're in for the story, strap on your helmet, you're going for a ride. That's spot on.
 But I would advise the developers, to calm down on the minor details, and focus on finishing it.
-Maybe my carreer as coder isn't the best to form a decent opinion on such matter, but it has obvious flaws.
+Maybe my career as coder isn't the best to form a decent opinion on such matters, but it has obvious flaws.
 
-But should you play it? Yes, try it at least. You can find them really cheap already since all of the backlash on the game.
+But should you play it? Yes, try it at least. You can find it really cheap already since all the backlash on the game.
 Let me know what you think. ¯\_(ツ)_/¯
