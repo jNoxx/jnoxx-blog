@@ -10,7 +10,7 @@ Personal review about The Last Guardian.
 
 ## Intro
 
-Okay, unsure if this game really needs any explanation, this is quite frankly, one of the more hyped games of last year.
+Unsure if this game really needs any explanation, this is quite frankly, one of the more hyped games of last year.
 For the people who have no clue, or aren't really console gamers, here is some context (since I love you all).
 
 The Last Guardian designed by Fumito Ueda, published by Sony themselves. Is obviously, a PS4 exclusive.
@@ -30,7 +30,7 @@ Battling with myself whether I would give it a whirl after all, or just skip it 
 
 ## But, please do tell us.
 
-Okay, here it goes, so since I loved the little gifs I saw of Trico (which is one of the 2 main characters in the game), I just HAD to try it.
+Here it goes, so since I loved the little gifs I saw of Trico (which is one of the 2 main characters in the game), I just HAD to try it.
 So I popped it in, and there I went, right in the story.
 It starts off with a very confused boy waking up next to a battle scarred animal, the size of a bus. It has roughed up feathers, spears in the flesh and is chained up. From the start on, you have this very tight bond and deeply emotional connection with this unknown animal.
 This game is not for your average gamer playthrough though, they don't believe in tutorials, they just kind of expect you to figure it out, but in its own slower pace, nothing is forced.
@@ -47,7 +47,7 @@ I'm a gamer that wants to get involved, deeply emerge in the story, which they t
 
 ## The last annoyance
 
-Okay, here I'll be a tad more negative, because basically, I finished this game "because I had too". Because I have this personal rule, I don't start a new game until I finished the one I was currently playing. But I also really kind of want to finish the story, so I know what was going to happen (don't worry, no spoilers). It's a double edged knife this game, that's why I really wanted to write about this.
+On this bit I'll be a tad more negative, because basically, I finished this game "because I had too". Because I have this personal rule, I don't start a new game until I finished the one I was currently playing. But I also really kind of want to finish the story, so I know what was going to happen (don't worry, no spoilers). It's a double edged knife this game, that's why I really wanted to write about this.
 But sometimes, I think the puzzles were too different from previous iterations of the same kind of puzzle, which sounds nice, but also made me doubt myself at times. Telling myself, "It won't be like that, doesn't really fit into this part".
 
 I was often excited about the story, because you get chased by these magic samourais, and without any real weapons, you really feel the urgency to get out there, find your friend Trico to slam them to bits.
