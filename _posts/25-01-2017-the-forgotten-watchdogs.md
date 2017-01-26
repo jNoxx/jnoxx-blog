@@ -45,14 +45,14 @@ Since I don't want to go in too much details, lets stick to "It was a bust for t
 
 I just KNEW they would make a 2, since they had the basics for a really good game, but they just missed out in the first.
 When I heard about the second title, I tried to temper my expectations, but I knew they couldn't screw this one up again. They needed this badly.
-So again, I tried to avoid trailers, reviews. All I knew was that they ditched Aydin Pierce, the previous antagonist, but still went for the hackers group called DedSec, which is an eye wink to Anonymous, which I like.
+So again, I tried to avoid trailers, reviews. All I knew was that they ditched Aiden Pierce, the previous antagonist, but still went for the hackers group called DedSec, which is an eye wink to Anonymous, which I like.
 
 Launch day, I went all in, I just bought the San Fransisco edition (I love to support developers), and wanted to give it a whirl.
 And heck yes, they did so many things right. The intro is a full blown mission, it's a good tutorial to learn the basic mechanics which you tried to forget from Watchdogs 1. DedSec doesn't kid around, they want you to join them, but they have to test you. So you're going in, guns blazing, for the kill (or dart-sleep-gun your way around your enemies, whichever you like), to hack servers of the ctOS, which is controlling the city, IoT and basically anything in the world.
 
 ## The game itself
 
-Without giving more spoilers about the story, the story in general a bit less depressing as the first, but they obviously payed attention to the community.
+Without giving more spoilers about the story, the story in general a bit less depressing as the first, but they obviously paid attention to the community.
 There are a lot of side quests, one of my favorites is the one where they mimic this real life story that actually happened about a certain CEO from a medical company which is raising prices of medication for its own profit. Without further adue, they nail the side missions. I played all of them like they were progressing main stories.
 They add so much value to the game, further exploring your bond with other characters, and fighting along your mates from DedSec towards the final stretch.
 
@@ -78,7 +78,7 @@ I want to write about every single thing you can do in this game, I can't write 
 And now that's something I want to point out, they did SO much in this game.
 
 Finishing the story, I still have the feeling that I barely touched 40% of the game.
-They tried so hard to make so much cool things, I didn't even know where to start, if your PS4 is online, and you're doing a mission, you suddenly get hacked by a random player online, you have to find him in the crowd, and chace him around, which is all quite cool.
+They tried so hard to make so much cool things, I didn't even know where to start, if your PS4 is online, and you're doing a mission, you suddenly get hacked by a random player online, you have to find him in the crowd, and chase him around, which is all quite cool.
 But Ubisoft, please, let me just play my game, I want to do some missions, hang out a bit, not do 1 gazillion things.
 Sailboat racing? Why would I bother when I can go shoot up NASA guys.
 
