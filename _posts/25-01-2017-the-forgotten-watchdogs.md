@@ -3,7 +3,7 @@ layout: post
 title: "The forgotten Watchdogs"
 date: 24-01-2017 12:00:00
 categories: gaming
-featured_image: /images/lastguardian.jpeg
+featured_image: /images/watchdogs2.jpg
 ---
 
 Personal review about Watchdogs 2.
