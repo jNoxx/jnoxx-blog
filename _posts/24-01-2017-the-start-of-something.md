@@ -23,7 +23,7 @@ But with my affection towards gaming, games, publishers & gamers, I would love t
 
 ## What can you expect?
 
-No freaking idea, I know a lot of people who like my opinions and takes on these perticular topics. So I want to write down reviews, rants, opinions.
+No freaking idea, I know a lot of people who like my opinions and takes on these particular topics. So I want to write down reviews, rants, opinions.
 So I'd like to emphasize, this is a PERSONAL opinion.
 I will use a lot of cuss words probably, or might come off a tad too strong, but that's how I express myself ¯\_(ツ)_/¯
 
