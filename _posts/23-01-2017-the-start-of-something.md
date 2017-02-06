@@ -1,7 +1,7 @@
 ---
 layout: post
 title: "The start of something new"
-date: 24-01-2017 12:00:00
+date: 23-01-2017 12:00:00
 categories: personal
 featured_image: /images/cover.jpg
 ---
