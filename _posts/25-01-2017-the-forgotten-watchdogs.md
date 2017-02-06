@@ -1,70 +1,93 @@
+
 ---
 layout: post
-title: "Indie gaming: Firewatch"
-date: 06-02-2017 12:00:00
+title: "The forgotten Watchdogs"
+date: 25-01-2017 12:00:00
 categories: gaming
-featured_image: /images/firewatch.jpg
+featured_image: /images/watchdogs2.jpg
 ---
 
-Personal review about Firewatch (PS4).
+Personal review about Watchdogs 2.
 
 ## Intro
 
-I'll have to start off with this small disclosure, I normally don't really buy indies, because simply, they're never on sale on disc.
-And that's what I want to elaborate a bit here, next to gamer I'm also a huge collector. Or, next to collector I'm also a gamer, not that sure yet which side I'm on.
-But, for me personally, my "fetish" is boxed games & consoles. I'll never buy digital, because then there is absolutely no end at all in my collection.
-I already have time issues playing all my games, so when I can, I focus on games which have a physical release.
+It's about 2:30 AM, 1st January 2017, sitting in my couch, watching the credits roll from Watchdogs 2.
+Felt a small adrenaline rush, a huge feeling of accomplishment for finishing Ubisoft's Watchdogs 2. The first game I "finished" in 2017. Which was one of my personal resolutions, finish more games in my collection and write about it. So, check and check.
+But I'm writing this, because I feel bad for this game, for Ubisoft. They really tried on this one.
 
-So, with that knowledge, I knew I'd probably never play Firewatch. Even though the raving reviews were exciting.
-But then, a company called Limited Run Games, freefighters of the cause "Games on a disc!", decided to team up with Compo Santo and make a physical release.
-Like every week or 2 weeks, I sat down at 3:59 PM with my credit card in my hand, anxiously waiting for the website to release the 7300 copies into the wild.
-Gladly I was able to snatch one, so I had to wait till it was shipped from America.
+## Ubisoft and me, a weird relation
 
-After a couple it weeks it finally arrived, packaging & cover art is absolutely stunning. And I couldn't wait to play it.
+Ubisoft... Where do I start? So many great series, but so many cashcows.
+I really got into the Assassins Creed series, really loved them, but after Black Flag - which is my favorite - they only disappointed me, Unity? What a joke, that was pure horror. The one where I gave up.
+Far cry, such a GREAT series, really, it is. But there's a small side note for me there too.
+I didn't play the second, or the third, I went straight back to the fourth, and holy moly, my only platinum Trophy on playstation till date. WHAT A GAME.
+Adored it, but I won't go into that. When I heard about Far Cry Primal, I decided to play the 3rd, since I read so many memes about it. (Insanity... remember).
 
-## First impression
+So I plugged in my PS3, opened my collectors edition with its cute hula hooping girl dolly included. And popped it in.
+Don't get me wrong, it's a really good game, but my disappointment for Far Cry 4 started growing by the minute. I started figuring out how much of a copy 4 was of 3, like, literally... Every single aspect is the same. They just slapped on other skins and tweaked the story slighty and tada. There you go.
+That's 2 huge disappointments in a row for jNoxx regarding Ubisoft.
+So when Primal came out (I missed out on the collectors edition on PS4, still looking for it by the way, so I could 'only' get it on The Xbone), I got my hands on the Presskit, so I could at least start playing it on my PS4, since my relationship with my Xbone is eh... I will keep that for another post.
 
-Knowing the game was quite short (I finished it in around 3 hours worth of gameplay), I finally found the time to play it this weekend (5th of February).
-And oh boy, was I in for a treat. As a coder myself - and with a healthy interest in Unity Game development - I knew this came from a "small" indie game studio, and that it was made in Unity.
-With the success they gathered last year, and everything I read about it, I knew it had to be good. So I just dipped right in.
+The only thing I saw about it, is from one of my idols, called Jontron, a Youtuber, which had the opportunity to sneak peek the game and made a wonderful video about it.
+And yes, it got me hyped again, but to keep a long story short, I loved it, but yet another copy/paste, with even less functionality than before?
+UBISOFT, WHAT ARE YOU DOING, STAHP, DON'T DO THAT.
 
-It starts of with a small text based story, where you're in the driving seat.
-You can make simple decisions to change the outcome of the intro, and then reality hits you hard when you realise this isn't a "Funsy & giggles" game.
+Okay, so now you know my weird relationship with Ubisoft, I want to highlight my love for Watchdogs.
 
-It has quite a darker background story, but I don't want to spoil too much, so I'll leave that to you guys.
+When the first Watchdogs got announced, E3 2013, oh boy, was this geek excited. It was basically a GTA clone (which I could forgive and forget), with hacking as a primary objective. The video's looked so amazing, of course, the collector that I am, I preordered the collectors edition on PS4.
+But when the months kept crawling by, more info got released about it, graphics kept degrading, more and more functionality seemed to be lacking in the final build.
+Still, I have a strong opinion about games and consoles, but I want to be sure that my opinion is backed up by facts, or at least, own experience.
 
-## The story
+So, when it finally came in the mail. Something went wrong with the order, I got the PS3 version instead of the PS4, so I had to wait with playing while I sent my CE back to get my replacement PS4 version. During that waiting time I started reading the reviews, which I shouldn't have..
+They were far from lovely, and I can't completely disagree.
+Since I don't want to go in too much details, lets stick to "It was a bust for the broader public". Even though I slightly liked it. #rebel
 
-After the whole shebang, you know your character is named Henry, and you retreated back into the forest where your task is looking for smoke & keeping the wildlife safe.
-Armed with nothing more than a walkie talkie & a supervisor called Delilah, your mission starts to keep your mind of your real "real life".
+## Announcement Watchdogs 2
 
-The main game itself starts quite slow with scolding some drunk teenagers who are skinny dipping while you're figuring out how to navigate the forest & learn the controls.
-But don't be suprised, since it is quite the short story-line, it progresses fast. And it gets quite... scary.
+I just KNEW they would make a 2, since they had the basics for a really good game, but they just missed out in the first.
+When I heard about the second title, I tried to temper my expectations, but I knew they couldn't screw this one up again. They needed this badly.
+So again, I tried to avoid trailers, reviews. All I knew was that they ditched Aiden Pierce, the previous antagonist, but still went for the hackers group called DedSec, which is an eye wink to Anonymous, which I like.
 
-You really feel submerged in the forest, you're actually hiking through the narrow paths finding your way from 1 campfire to supply caches & rapelling steep hills.
-Even though it is a "walking simulator", the time you spend talking to Delilah while hiking - Which you'll do a lot - actually makes time go faster, forgetting about your characters problems.
-After forming a tight bond with Delilah while choosing your own answers in the conversation, you find yourself stuck in a conspiracy theory feeling, and the game keeps tricking you into backtracking your every movement because of that.
+Launch day, I went all in, I just bought the San Fransisco edition (I love to support developers), and wanted to give it a whirl.
+And heck yes, they did so many things right. The intro is a full blown mission, it's a good tutorial to learn the basic mechanics which you tried to forget from Watchdogs 1. DedSec doesn't kid around, they want you to join them, but they have to test you. So you're going in, guns blazing, for the kill (or dart-sleep-gun your way around your enemies, whichever you like), to hack servers of the ctOS, which is controlling the city, IoT and basically anything in the world.
 
-The story gets dark, you actually feel hunted while you're using your flashlight to find your way back to your guard tower in pitch dark, when you find out even that isn't safe.  
+## The game itself
 
-I finished the game in 1 run because I actually felt intrigued, I wanted to keep playing, know what was going to happen. And that's one of the best things a game can do.
-It shouldn't feel like a drag to finish the game. And I absolutely loved how they nailed that in this game. They looked after so much small details, with such little budget in quite a large environment.
+Without giving more spoilers about the story, the story in general a bit less depressing as the first, but they obviously paid attention to the community.
+There are a lot of side quests, one of my favorites is the one where they mimic this real life story that actually happened about a certain CEO from a medical company which is raising prices of medication for its own profit. Without further adue, they nail the side missions. I played all of them like they were progressing main stories.
+They add so much value to the game, further exploring your bond with other characters, and fighting along your mates from DedSec towards the final stretch.
 
-The ending is a bit anti climactic, and you feel left behind with an empty stomach, but after reading on the internet what other people thought of the entire game I felt better.
-Apparently I wasn't the only one pondering on what could be the explanation for several twists in the story, and I think they gained a large community and props to the creators for making a great game. If you have people discussing such things about your game, you know you've done it well.
-Reading all these forums made me feel better about the ending, because it leaves so much holes open in the story. And 'till now I'm still thinking of what could've been and what happened in perticular missions.
+They tuned so many things from the first, which I'd like to point out.
+Driving now actually feels real, but maybe a tad too easy, I don't think I even crashed once? While in GTA I was backflipping through the air while I was crashing my bike or sports car.
+Shooting feels good, but you have a stun gun, so you can take a more relaxed stealthy way, you have this kind of slingshot so you can knock the life out of your enemies in tight corners, so they will "rest" dreaming of their families.
+I don't think I actually had that much variety in weapons, I had 1 SMG and 1 pistol through the entire game, which didn't even really bother me that much frankly. Since you have a lot of addons and gadgets to play around with.
 
-## Technical point of view
+They don't reuse too much aspects of the game every. single. mission. compared to the first. Where the "hacking" was a bit too much, because kept repeating that over and over.
 
-Even though it is an indie, there are some remarks I have. I understand - as a coder myself - it isn't easy. But they dropped some balls in this game.
-I adore all the details they put into this game, a lot of extra animations that normal games wouldn't do. But that shows in other parts.
-For example, you notice there are "triggers" in the game which will make the game start loading different area's which you can't see yet. But that's something you actually notice a lot as a user.
-You get mini-freezes after every couple 100 meters, but it wasn't a showstopper for me. But still, that's something that should've been smoothed out.
-Next to that, you actually see a lot of the environment rendering while walking, you see actual grass rendering on screen, it has a small perimeter around the character which is highly detailed, but 20 meters further is mostly just missing. So you see props of grass popping up on the fly. All these little details make you feel the difference between a indie studio & a professional studio.
+Basically, all the faults they had in the first, they fixed them, and added upon them so much.
+
+You're working your way up the chain in DedSec, with its ups and downs. Fighting against the greater good.
+You start off small, tuning your electric kart to the maximum so you can drift in Silicon Valley races against other nerds.
+In no time, you're fighting against hordes of security officers, sneaking your way into NASA, stealing a knight-rider alike car and making it your own.
+
+The puzzles you need to solve, improved so much, not just camera hopping "hacking" from one to another.
+You're hacking actual huge cranes, to fling you onto certain buildings, so you can go flip a switch on the side of a domain, so you can run around for 1 km, and hack cars to run over security guards there as a diversion.
+
+Hacking house or security robots so they won't notice you, setting up sneaky traps for the guards patrolling. Fight your way into Alcatraz, graffiti the Golden gate bridge, blackmail pedophiles.
+
+I want to write about every single thing you can do in this game, I can't write it all down without spoiling a thing, and to be honest, I didn't really do everything.
+And now that's something I want to point out, they did SO much in this game.
+
+Finishing the story, I still have the feeling that I barely touched 40% of the game.
+They tried so hard to make so much cool things, I didn't even know where to start, if your PS4 is online, and you're doing a mission, you suddenly get hacked by a random player online, you have to find him in the crowd, and chase him around, which is all quite cool.
+But Ubisoft, please, let me just play my game, I want to do some missions, hang out a bit, not do 1 gazillion things.
+Sailboat racing? Why would I bother when I can go shoot up NASA guys.
 
 ## The verdict
 
-It is absolutely a nobrainer, you SHOULD play this, even though you're not into walking simulators like me.
-Firewatch has its small flaws, but totally forgivable for this price & emotional roller coaster.
+With all these stories and tidbits aside, should you buy Watchdogs 2? Hell. fucking. yes. Pardon my words, but just do it, it's quite cheap these days, since Ubisoft kind of shot themselves in the foot last years, and the sales really didn't go well I heard.
+Everything looks happy and colourful, but don't get mistaken. The story has quite the deep meaning, there are some raw bits in there, even though you're talking to a LED-mask guy and are 3D printing drones and even weapons. This is a -good- game.
+
+Hit me up for questions or want to say something about it or my review? Mention me on Twitter or Facebook.
 
 T.
