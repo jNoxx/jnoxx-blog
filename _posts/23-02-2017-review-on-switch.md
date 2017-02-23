@@ -58,6 +58,7 @@ And they nailed that feeling, so props to them.
 You had to pickup a special stone tablet that will guide you through the game (and other things that the guy couldn't tell me about since he had no clue, and the demo was actually all he knew).
 You start off with picking up a branch to whack enemies around with, because this game doesn't kid around, it learns you so many things in the first minutes. They really want to push you into the open world so you can actually start enjoying the game.
 Since the demo is only limited to 20 minutes of gameplay, the guy kept telling me what to do - which slightly annoyed me - which I understood, since they want you to get the feeling of the entirety of the game.
+I did have some major issues with FPS drops, I kept telling myself that it's because the special demo version that was running on the Switch, because I didn't want to be disappointed that hard when the game came out. (queue's my The Last Guardian blog where I talk about FPS drops)
 Can't really say much more, I think this game is going to be absolutely bonkers, there will be so much to do, so much easter eggs to discover.
 * Looks up which weeks he can take off of work so he can play with Link *
 
@@ -126,9 +127,11 @@ One last note, as a developer, I'm really excited they decided to make a devkit 
 I'm already working on my first game for it, and can't wait to receive it so I can start having my fun 🤓.
 Hopefully they finally can get the Indie market on their side which saved Sony & Xbox in the last generations of consoles.
 
-T.
+TTT.
 
+![Splatoon 2](https://jnoxx.github.io/jnoxx-blog/images/switch/image1.JPG "Splatoon 2")
 ![Venue](https://jnoxx.github.io/jnoxx-blog/images/switch/image4.JPG "The venue")
 ![Zelda](https://jnoxx.github.io/jnoxx-blog/images/switch/image2.JPG "Zelda")
 ![Snipperclips](https://jnoxx.github.io/jnoxx-blog/images/switch/image3.JPG "Snipperclips")
-![Splatoon 2](https://jnoxx.github.io/jnoxx-blog/images/switch/image1.JPG "Splatoon 2")
+
+----
