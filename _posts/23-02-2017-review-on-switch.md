@@ -128,7 +128,7 @@ Hopefully they finally can get the Indie market on their side which saved Sony &
 
 T.
 
-![Venue](/images/switch/switch/image4.JPG "The venue")
-![Zelda](/images/switch/switch/image2.JPG "Zelda")
-![Snipperclips](/images/switch/switch/image3.JPG "Snipperclips")
-![Splatoon 2](/images/switch/switch/image1.JPG "Splatoon 2")
+![Venue](https://jnoxx.github.io/jnoxx-blog/images/switch/image4.JPG "The venue")
+![Zelda](https://jnoxx.github.io/jnoxx-blog/images/switch/image2.JPG "Zelda")
+![Snipperclips](https://jnoxx.github.io/jnoxx-blog/images/switch/image3.JPG "Snipperclips")
+![Splatoon 2](https://jnoxx.github.io/jnoxx-blog/images/switch/image1.JPG "Splatoon 2")
