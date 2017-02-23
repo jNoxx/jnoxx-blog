@@ -127,3 +127,8 @@ I'm already working on my first game for it, and can't wait to receive it so I c
 Hopefully they finally can get the Indie market on their side which saved Sony & Xbox in the last generations of consoles.
 
 T.
+
+![Venue](/images/switch/switch/image4.JPG "The venue")
+![Zelda](/images/switch/switch/image2.JPG "Zelda")
+![Snipperclips](/images/switch/switch/image3.JPG "Snipperclips")
+![Splatoon 2](/images/switch/switch/image1.JPG "Splatoon 2")
