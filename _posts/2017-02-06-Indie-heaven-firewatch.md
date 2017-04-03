@@ -1,7 +1,7 @@
 ---
 layout: post
 title: "Indie gaming&#58 Firewatch"
-date: 06-02-2017 12:00:00
+date: 2017-02-06 12:00:00
 categories: gaming
 featured_image: /images/firewatch.jpg
 ---

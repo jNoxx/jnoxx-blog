@@ -1,7 +1,7 @@
 ---
 layout: post
 title: "Nintendo Switch Event"
-date: 23-02-2017 21:30:00
+date: 2017-02-23 21:30:00
 categories: gaming
 featured_image: /images/zeldabanner.JPG
 ---
