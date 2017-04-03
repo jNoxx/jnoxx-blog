@@ -1,7 +1,7 @@
 ---
 layout: post
 title: "Legend of Zelda&#58 Breath of the wild"
-date: 03-04-2017 12:00:00
+date: 02-04-2017 10:00:00
 categories: gaming
 featured_image: /images/botw.png
 ---
