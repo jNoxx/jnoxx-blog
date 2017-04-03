@@ -10,18 +10,6 @@ Personal review on Legend of Zelda: Breath of the wild (Nintendo Switch).
 
 ## Intro
 
-
-
-## First impression
-
-
-
-## The story
-
-## Technical point of view
-
-
-## The verdict
-
+First intro.
 
 TTT.
