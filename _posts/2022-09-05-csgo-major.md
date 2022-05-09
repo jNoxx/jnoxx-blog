@@ -22,8 +22,8 @@ Een game die de laatste 20 jaar vooral wordt gespeeld op de PC. Hier en daar was
 Maar, wat is nu de Major waar zoveel over gepraat wordt? Waarom is het zo speciaal dat deze in België doorgaat, en vooral, hoe kan ik als leek hier iets van begrijpen?
 Alvast, als we het gemakkelijk willen uitleggen. Is de major het wereldkampioenschap dat officieel wordt gesponsord door de ontwikkelaar Valve, wat doorgaans 2x per jaar wordt georganiseerd om te meten welk team momenteel de beste is.
 
-Totaal van 120 spelers (zonder coaches, analysts, mental & physical coaches, managers etc) gaan straks, klokslag 12 uur aan de slag met de eerste wedstrijd.
-Met als jongste telg Munkhbold "Techno4K" Sodbayar, 16 jaar, en wederom zijn eerste major tegen over mensen zoals Finn "Karrigan" Andersen, die al 32 kaarsjes mag uitblazen en al meerdere Major titels mag opspelden.
+Een totaal van 120 spelers (zonder coaches, analysts, mental & physical coaches, managers etc) gaan straks, klokslag 12 uur aan de slag met de eerste wedstrijd.
+Met als jongste telg Munkhbold "Techno4K" Sodbayar, 16 jaar, en wederom zijn eerste major tegenover mensen zoals Finn "Karrigan" Andersen, die al 32 kaarsjes mag uitblazen en al meerdere Major titels mag opspelden.
 
 Professionele esport teams die al miljoenen hebben gepompt in het opkopen van spelers & rosters om mee te kunnen competen op het hoogste niveau moeten het gaan opnemen tegen amateurteams die zich doorheen maandenlange qualificaties hebben geworsteld om hier, in Antwerpen of all places, het te gaan beslechten. Wat de esports scene net zo mooi maakt. It's anyones game, letterlijk.
 In CSGO heb je geen franchising zoals in andere esports, jij kan als café-voetbal-sport gewijs teampje het in principe opnemen tegen de Ronaldo's & Messi's van deze wereld. Als je je maar door alle voorrondes kan worstelen, en die zijn niet mals. Er wordt enorm hard gestreden voor de beperkte plekken, en de laatste weken voor dit kampioenschap is er serieus afgezien, geweend maar vooral, hard gestreden.
@@ -35,9 +35,9 @@ Dit is mijn take/blog van dit kampioenschap in Antwerpen en mijn persoonlijke vi
 Met mijn 20 jaar esports ervaring, waarvan 15 jaar in het CS universum. Heb ik wel een en ander opgepikt doorheen de jaren, en dat ga ik de komende weken met jullie gaan delen. Ik probeer dit zo consistent mogelijk te doen, maar de komende weken zal vooral gaan over welke wedstrijden er zijn gespeeld en welke dingen ik heb opgemerkt.
 
 Dat dit kampioenschap in Antwerpen doorgaat is voor mij uiteraard, het beste dat ooit kon gebeuren. Nog net niet boven de geboorte van mijn zoon, maar dat moet ik verplicht schrijven van mijn vriendin die haar ogen in mijn rug aan het priemen zijn momenteel.
-Dat team META (<https://teammeta.eu/>) hier niet de pluimen gedeeltelijks op hun hoed mag steken zou gelogen zijn. Met Steven Leunens (eigenaar) uiteraard voorop. Als er mensen zijn in Vlaanderen die zich zo hard inzetten voor esports, dan zijn het zij wel. Ik kan goed op sociale media & streams roepen over hoe cool esports is en probeer ik er veel rond te doen.
+Dat team META (<https://teammeta.eu/>) hier niet de pluimen gedeeltelijks op hun hoed mag steken zou gelogen zijn. Met Steven Leunens (eigenaar) uiteraard voorop. Als er mensen zijn in Vlaanderen die zich zo hard inzetten voor esports, dan zijn het zij wel. Ik kan vooral goed op sociale media & streams roepen over hoe cool esports is, maar ik probeer er ook veel rond te doen.
 Zij zijn de echte big shots die zich dagdagelijks inzetten met team META om esports op de kaart te krijgen. En dat bewijzen ze nu nog maar eens, zij hebben mee gelobbied & getrokken aan stad Antwerpen samen met PGL - degene die de Major dit jaar mochten organiseren van Valve - om een overeenkomst te krijgen om het te mogen laten doorgaan in het sportpaleis begot.
-En dat is alleen al een hele alinea waard, want. Thank you. Van alle fans in deze regionen, dat dit kan gebeuren, en dat ik, dit mag meemaken in ons eigen landje. Ik ben extreem fier & trots dat het eindelijk zo ver is. 9 mei, om 12 uur gaan de eerste games van start.
+En dat is alleen al een hele alinea waard, want, Thank you. Van alle fans in deze regionen, dat dit kan gebeuren, en dat ik, dit mag meemaken in ons eigen landje. Ik ben extreem fier & trots dat het eindelijk zo ver is. 9 mei, om 12 uur gaan de eerste games van start.
 
 Alle spelers & coaches zijn dit weekend in het Radisson Blu Astrid Hotel aangekomen, die volledig is afgehuurd de komende 2 weken voor dit toernooi.
 Daar zijn ook speciale ruimtes gemaakt om de group stages te spelen van de Major. Wat houd dit in, de komende week gaat er al geduchtig gestreden worden om te mogen spelen in het sportpaleis.
@@ -58,7 +58,7 @@ Na een simplistisch voting systeem worden de maps gekozen uit een map-pool.
 Er zijn 2 helften die op 1 map gespeeld worden. De aanvallende & verdedigende helft.
 Ook wel de Terrorists & Counter-Terrorists, T's & CT's in het kort genoemt.
 
-Een spelronde duurt 1 minuut 45. En daarop moet dan ook alles gaan gebeuren, elke tactiek waar maanden is op geoefent.
+Een spelronde duurt 1 minuut 45. En daarop moet dan ook alles gaan gebeuren, elke tactiek waar maanden is op geoefend.
 
 Terroristen hebben 1 doel, ofwel het ander team uitschakelen OF de bom gaan planten op 1 van de 2 desbetreffende bom-spots (Note, kleine afgelijnde stukjes op de map waar enkel de bom mag neergepoot worden). De CT's hun doel is hetzelfde, zolang de bom niet is geplant, alle Terrorists neerhalen OF als de bom is geplant, krijgen ze een extra 45 seconden om die te gaan ontmantelen.
 Dit proces duurt 10 seconden waarop ze niet kunnen schieten, tenzij hun team een Defuse-kit heeft gekocht (Note, economy systeem wordt later aangehaald) waardoor het "maar" 5 seconden duurt. Al die beslissingen moeten dus gebeuren op die 45 seconden.
