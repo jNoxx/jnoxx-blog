@@ -15,6 +15,7 @@ CSGO Major, wie, wat, waar, waarom en vooral, hoe?
 Counter-Strike is een First Person Shooter game (FPS) die ter wereld kwam als mod op Half-life in 1999 gemaakt door Gooseman -wiens handtekening ik steevast naast mijn bureau heb hangen- en de wereld veroverde in zijn eigen verworven genre, Tactical shooter. Iets wat ik nog meer ga proberen kaderen doorheen de post.
 Iets wat ik trouwens ook ga proberen meer uit te leggen in mijn nieuwe reeks op Youtube. De 101 of FPS gaming zeg maar.
 
+
 Momenteel spelen we CS:GO. Ofwel Counter-Strike: Global Offensive, de 3e grote iteratie van de game, als we sidetracks als Condition Zero niet gaan meetellen.
 De grote lijnen van de game zijn vooral CS1.6, CS Source & nu de laatste 10 jaar gaan we aan de slag in Global Offensive.
 Een game die de laatste 20 jaar vooral wordt gespeeld op de PC. Hier en daar was er al eens uitzondering, zoals een Xbox port die al jaren niet meer ondersteund wordt.
@@ -58,7 +59,7 @@ Na een simplistisch voting systeem worden de maps gekozen uit een map-pool.
 Er zijn 2 helften die op 1 map gespeeld worden. De aanvallende & verdedigende helft.
 Ook wel de Terrorists & Counter-Terrorists, T's & CT's in het kort genoemt.
 
-Een spelronde duurt 1 minuut 45. En daarop moet dan ook alles gaan gebeuren, elke tactiek waar maanden is op geoefent.
+Een spelronde duurt 1 minuut 45. En daarop moet dan ook alles gaan gebeuren, elke tactiek waar maanden is op geoefend.
 
 Terroristen hebben 1 doel, ofwel het ander team uitschakelen OF de bom gaan planten op 1 van de 2 desbetreffende bom-spots (Note, kleine afgelijnde stukjes op de map waar enkel de bom mag neergepoot worden). De CT's hun doel is hetzelfde, zolang de bom niet is geplant, alle Terrorists neerhalen OF als de bom is geplant, krijgen ze een extra 45 seconden om die te gaan ontmantelen.
 Dit proces duurt 10 seconden waarop ze niet kunnen schieten, tenzij hun team een Defuse-kit heeft gekocht (Note, economy systeem wordt later aangehaald) waardoor het "maar" 5 seconden duurt. Al die beslissingen moeten dus gebeuren op die 45 seconden.
