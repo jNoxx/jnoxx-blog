@@ -12,12 +12,12 @@ Intro to the CSGO Major.
 
 CSGO Major, wie, wat, waar, waarom en vooral, hoe?
 
-Counter-Strike is een First Person Shooter game (FPS) die ter wereld kwam als mod op Half-life in 1999 gemaakt door Gooseman -wiens handtekening ik steevast naast mijn bureau heb hangen- en de wereld veroverde in zijn eigen verworven genre. Genaamd de Tactical shooter. Iets wat ik nog meer ga proberen kaderen doorheen de post.
+Counter-Strike is een First Person Shooter game (FPS) die ter wereld kwam als mod op Half-life in 1999 gemaakt door Gooseman -wiens handtekening ik steevast naast mijn bureau heb hangen- en de wereld veroverde in zijn eigen verworven genre, Tactical shooter. Iets wat ik nog meer ga proberen kaderen doorheen de post.
 Iets wat ik trouwens ook ga proberen meer uit te leggen in mijn nieuwe reeks op Youtube. De 101 of FPS gaming zeg maar.
 
 Momenteel spelen we CS:GO. Ofwel Counter-Strike: Global Offensive, de 3e grote iteratie van de game, als we sidetracks als Condition Zero niet gaan meetellen.
 De grote lijnen van de game zijn vooral CS1.6, CS Source & nu de laatste 10 jaar gaan we aan de slag in Global Offensive.
-Een game die de laatste 20 jaar vooral wordt gespeeld op de PC. Met hier en daar een uitzondering, zoals een Xbox port die al jaren niet meer ondersteund wordt.
+Een game die de laatste 20 jaar vooral wordt gespeeld op de PC. Hier en daar was er al eens uitzondering, zoals een Xbox port die al jaren niet meer ondersteund wordt.
 
 Maar, wat is nu de Major waar zoveel over gepraat wordt? Waarom is het zo speciaal dat die in België is, en vooral, hoe kan ik als leek hier iets van begrijpen?
 Nu, alvast, als we het gemakkelijk willen uitleggen. Is de major het wereldkampioenschap dat officieel wordt gesponsord door de ontwikkelaar Valve, wat doorgaans 2x per jaar wordt georganiseerd om te meten welk team momenteel de beste is.
@@ -25,14 +25,14 @@ Nu, alvast, als we het gemakkelijk willen uitleggen. Is de major het wereldkampi
 Totaal van 120 spelers (zonder coaches, analysts, mental & physical coaches, managers etc) gaan straks, klokslag 12 uur aan de slag met de eerste wedstrijd.
 Met als jongste telg Munkhbold "Techno4K" Sodbayar, 16 jaar, en wederom zijn eerste major tegen over mensen zoals Finn "Karrigan" Andersen, die al 32 kaarsjes mag uitblazen en al meerdere Major titels mag opspelden.
 
-Professionele esport teams die al miljoenen hebben gepompt in het opkopen van spelers & rosters om mee te kunnen competen op het hoogste niveau moeten het gaan opnemen tegen amateurteams die zich doorheen maandenlange qualificaties hebben geworstelt om hier, in Antwerpen of all places, het te gaan opnemen tegen elkaar. Wat de esports scene net zo mooi maakt. It's anyones game, letterlijk.
-In CSGO heb je geen franchising zoals in andere esports, jij kan als café-voetbal-sport gewijs teampje het in principe opnemen tegen de Ronaldo's & Messi's van deze wereld. Als je je maar door alle voorrondes kan worstelen, en die zijn niet mals. Er wordt enorm hard gestreden voor de beperkte plekken, en de laatste weken voor dit kampioenschap is er serieus afgezien, geweent maar vooral, hard gestreden.
+Professionele esport teams die al miljoenen hebben gepompt in het opkopen van spelers & rosters om mee te kunnen competen op het hoogste niveau moeten het gaan opnemen tegen amateurteams die zich doorheen maandenlange qualificaties hebben geworsteld om hier, in Antwerpen of all places, het te gaan beslechten. Wat de esports scene net zo mooi maakt. It's anyones game, letterlijk.
+In CSGO heb je geen franchising zoals in andere esports, jij kan als café-voetbal-sport gewijs teampje het in principe opnemen tegen de Ronaldo's & Messi's van deze wereld. Als je je maar door alle voorrondes kan worstelen, en die zijn niet mals. Er wordt enorm hard gestreden voor de beperkte plekken, en de laatste weken voor dit kampioenschap is er serieus afgezien, geweend maar vooral, hard gestreden.
 
 Dit is mijn take/blog van dit kampioenschap in Antwerpen en mijn persoonlijke visie.
 
 ## Hoe en wat dan?
 
-Met mijn 20 jaar esports ervaring, waarvan 15 jaar in het CS universum. Heb ik wel een en ander opgepikt doorheen de jaren, en dit ga ik de komende weken met jullie delen. Ik probeer dit zo consistent mogelijk te doen, maar de komende weken zal vooral gaan over welke wedstrijden er zijn gespeeld en welke dingen ik heb opgemerkt.
+Met mijn 20 jaar esports ervaring, waarvan 15 jaar in het CS universum. Heb ik wel een en ander opgepikt doorheen de jaren, en dat ga ik de komende weken met jullie gaan delen. Ik probeer dit zo consistent mogelijk te doen, maar de komende weken zal vooral gaan over welke wedstrijden er zijn gespeeld en welke dingen ik heb opgemerkt.
 
 Dat dit kampioenschap in Antwerpen doorgaat is voor mij uiteraard, het beste dat ooit kon gebeuren. Nog net niet boven de geboorte van mijn zoon, maar dat moet ik verplicht schrijven van mijn vriendin die haar ogen in mijn rug aan het priemen zijn momenteel.
 Dat team META (<https://teammeta.eu/>) hier niet de pluimen gedeeltelijks op hun hoed mag steken zou gelogen zijn. Met Steven Leunens (eigenaar) uiteraard voorop. Als er mensen zijn in Vlaanderen die zich zo hard inzetten voor esports, dan zijn het zij wel. Ik kan goed op sociale media & streams roepen over hoe cool esports is en probeer ik er veel rond te doen.
@@ -84,7 +84,7 @@ Vragen? Stel ze gerust, maar dit is de meest simpele uitleg van CS om in een blo
 ## Mijn verdict
 
 Door mijn te kort aan tijd, en dat ik dit weer veel te laat ben beginnen schrijven, kan ik niet alles van afgelopen jaren gaan neerschrijven wat ik denk dat er gaat gebeuren tussen de teams.
-Maar teams (die we vooral volgende week zullen zien) om in de gaten te houden voor deze major is vooral Faze clan. Een geniaal team, met eindelijk een goede lineup met paar van de beste fraggers te wereld. Maar wel met Karrigan, een van de oudste spelers en een van de slechtste fraggers dit toernooi. Kan zijn team hem er mee doortrekken? We zijn alvast benieuwd, want hij is nu al een van de meest legendarische en meest gewilde IGL's ter wereld.
+Maar het team (die we vooral volgende week zullen zien) om in de gaten te houden voor deze major is vooral Faze clan. Een geniaal team, met eindelijk een goede lineup met paar van de beste fraggers te wereld. Maar wel met Karrigan, een van de oudste spelers en een van de slechtste fraggers dit toernooi. Kan zijn team hem er mee doortrekken? We zijn alvast benieuwd, want hij is nu al een van de meest legendarische en meest gewilde IGL's ter wereld.
 
 NaVi is de vorige major winnaar, met de beste speler ter wereld S1mple. Maar, het team, die bestaat uit Russen & Oekraïners, hebben een zware hit gekregen door de oorlog, interne ruzies over wie naar waar moet verhuizen en familie die in gevaar is, hakt er zwaar op in, wat ik uiteraard begrijp. Ze hebben maanden nauwelijks samen kunnen oefenen. Dat ze niet op het hoogste niveau zullen performen is wel duidelijk, maar de verwachtingen van hun sponsors & fans ligt uiteraard ook hoog.
 
