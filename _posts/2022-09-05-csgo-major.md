@@ -53,29 +53,29 @@ Maar eerst, wat en hoe wordt Counter-Strike gespeeld, en hoe kan ik dat dan gaan
 ## Spelverloop
 
 Counter-Strike is in principe een heel simpel spel.
-Na een simplistisch voting systeem worden de maps gekozen uit een map-pool.
+Door middel van een simpel voting systeem worden de maps gekozen uit een map-pool.
 
 Er zijn 2 helften die op 1 map gespeeld worden. De aanvallende & verdedigende helft.
-Ook wel de Terrorists & Counter-Terrorists, T's & CT's in het kort genoemt.
+Ook wel de Terrorists & Counter-Terrorists, T's & CT's in het kort genoemd.
 
 Een spelronde duurt 1 minuut 45. En daarop moet dan ook alles gaan gebeuren, elke tactiek waar maanden is op geoefend.
 
 Terroristen hebben 1 doel, ofwel het ander team uitschakelen OF de bom gaan planten op 1 van de 2 desbetreffende bom-spots (Note, kleine afgelijnde stukjes op de map waar enkel de bom mag neergepoot worden). De CT's hun doel is hetzelfde, zolang de bom niet is geplant, alle Terrorists neerhalen OF als de bom is geplant, krijgen ze een extra 45 seconden om die te gaan ontmantelen.
-Dit proces duurt 10 seconden waarop ze niet kunnen schieten, tenzij hun team een Defuse-kit heeft gekocht (Note, economy systeem wordt later aangehaald) waardoor het "maar" 5 seconden duurt. Al die beslissingen moeten dus gebeuren op die 45 seconden.
+Dit proces duurt 10 seconden waarin ze niet kunnen schieten, tenzij hun team een Defuse-kit heeft gekocht (Note, economy systeem wordt later aangehaald) waardoor het "maar" 5 seconden duurt. Al die beslissingen moeten dus gebeuren op die 45 seconden.
 
-Afhankelijk van wie gestemt heeft mag je kiezen welke kant je start. (Extra note: Op sommige tornooien wordt er beslist wie waar mag starten doormiddels van een Knife ronde, maar wordt niet meer zo frequent gedaan)
+Afhankelijk van wie gestemd heeft mag je kiezen welke kant je start. (Extra note: Op sommige tornooien wordt er beslist wie waar mag starten doormiddels van een Knife ronde, maar dit wordt niet meer zo frequent gedaan)
 De kant die je kiest om te starten kan beslissend zijn voor het moraal, omdat maps doorgaans zijn opgebouwd om het verdedigend team een voordeel te geven, dus 99% van de tijd wordt er gekozen om de "makkelijkere" helft eerst te kiezen.
-Vanaf er 15 rondes gespeeld is, worden de rollen omgedraait. Vanaf jij 16 rondes kan binnenhalen als team, is de map voor jou.
+Vanaf er 15 rondes gespeeld zijn, worden de rollen omgedraaid. Vanaf jij 16 rondes kan binnenhalen als team, is de map voor jou.
 Zo'n map duurt ongeveer 45-60 minuten.
 
-Elke helft start je met 800$ per persoon voor wapens/uitrusting te kopen. Dit gaat dan vooral over granaten, flashbangs, molotovs en gear om de bom sneller te defusen.
+Elke helft start je met 800$ per persoon om wapens/uitrusting te kopen. Dit gaat dan vooral over granaten, flashbangs, molotovs en gear om de bom sneller te defusen.
 Daarom wordt elke helft gestart met een "Pistol round", die super belangrijk is voor het verloop van de game.
-Met geld dat verdient wordt door kills binnen te halen, bom neer te poten of te ontmantelen, kunnen dan weer zwaardere wapens gekocht worden. Om het makkelijk uit te leggen, er zit dus een heel zwaar economy system achter, waardoor sommige keuzes raar lijken als je voor de eerste keer gaat kijken. Maar achter elke keuze die gemaakt wordt, zitten er heel veel gedachtegangen achter. Dit is iets te moeilijk om zomaar in een blogpost neer te gaan pennen. Dit zal ik zeker nog eens aanhalen in mijn FPS101 serie.
+Met geld dat verdiend wordt door kills binnen te halen, bom neer te poten of te ontmantelen, kunnen dan weer zwaardere wapens gekocht worden. Om het makkelijk uit te leggen, er zit dus een heel zwaar economy system achter, waardoor sommige keuzes raar lijken als je voor de eerste keer gaat kijken. Maar achter elke keuze die gemaakt wordt, zitten er heel veel gedachtegangen verscholen. Dit is echter iets te ingewikkeld om zomaar in een blogpost neer te gaan pennen maar zal ik zeker nog eens aanhalen in mijn FPS101 serie.
 
-Je zal vooral een 4 tal dezelfde maps zien terug komen, die je dan redelijk snel kan oppikken om te gaan volgen. Maps zijn namelijk bijna altijd op een vrij basic principe gebaseerd.
+Je zal vooral een viertal dezelfde maps zien terug komen, die je dan redelijk snel kan oppikken om te gaan volgen. Maps zijn namelijk bijna altijd op een vrij basic principe gebaseerd.
 2 spawn points, die van de T's & CT's. Een middle "lane" waarop veel wordt uitgevochten. En 2 "lanes" richting de bom sites. Die A & B heten.
 
-Wat vooral belangrijk is, als je gaat spectaten, zal je door de muren kunnen kijken, dit is ENKEL door de spectator mode, de speler zelf kan uiteraard niet zien waar de vijanden of teammates zich gaan bevinden, maar dit is voor de kijker/spectator wel wat fijner om te zien wat er gaat gebeuren of aan het gebeuren is. Soms zal de spel-observer deze mode uitzetten, om te laten zien hoe de POV van de speler op dat moment is.
+Wat vooral belangrijk is, als je gaat spectaten, zal je door de muren kunnen kijken, dit is ENKEL mogelijk in de spectator mode, de speler zelf kan uiteraard niet zien waar de vijanden of teammates zich gaan bevinden, maar dit is voor de kijker/spectator wel wat fijner om te zien wat er gaat gebeuren of aan het gebeuren is. Soms zal de spel-observer deze mode uitzetten, om te laten zien hoe de POV van de speler op dat moment is.
 
 Dus, er is elke ronde 15 seconden pauze om alle uitrusting te kopen, de IGL (In game leader) de tijd geeft om het team te vertellen wat ze gaan/moeten doen.
 Vanaf dan wordt er dus 1:45 minuut tot max 2:25 minuten de ronde bestreden. En zo 15 keer per helft tot 16 rondjes.
@@ -83,7 +83,7 @@ Vragen? Stel ze gerust, maar dit is de meest simpele uitleg van CS om in een blo
 
 ## Mijn verdict
 
-Door mijn te kort aan tijd, en dat ik dit weer veel te laat ben beginnen schrijven, kan ik niet alles van afgelopen jaren gaan neerschrijven wat ik denk dat er gaat gebeuren tussen de teams.
+Door mijn tekort aan tijd, en dat ik dit weer veel te laat ben beginnen schrijven, kan ik niet alles van afgelopen jaren gaan neerschrijven wat ik denk dat er gaat gebeuren tussen de teams.
 Maar het team (die we vooral volgende week zullen zien) om in de gaten te houden voor deze major is vooral Faze clan. Een geniaal team, met eindelijk een goede lineup met paar van de beste fraggers te wereld. Maar wel met Karrigan, een van de oudste spelers en een van de slechtste fraggers dit toernooi. Kan zijn team hem er mee doortrekken? We zijn alvast benieuwd, want hij is nu al een van de meest legendarische en meest gewilde IGL's ter wereld.
 
 NaVi is de vorige major winnaar, met de beste speler ter wereld S1mple. Maar, het team, die bestaat uit Russen & Oekraïners, hebben een zware hit gekregen door de oorlog, interne ruzies over wie naar waar moet verhuizen en familie die in gevaar is, hakt er zwaar op in, wat ik uiteraard begrijp. Ze hebben maanden nauwelijks samen kunnen oefenen. Dat ze niet op het hoogste niveau zullen performen is wel duidelijk, maar de verwachtingen van hun sponsors & fans ligt uiteraard ook hoog.
