@@ -84,21 +84,21 @@ Vragen? Stel ze gerust, maar dit is de meest simpele uitleg van CS om in een blo
 ## Mijn verdict
 
 Door mijn tekort aan tijd, en dat ik dit weer veel te laat ben beginnen schrijven, kan ik niet alles van afgelopen jaren gaan neerschrijven wat ik denk dat er gaat gebeuren tussen de teams.
-Maar het team (die we vooral volgende week zullen zien) om in de gaten te houden voor deze major is vooral Faze clan. Een geniaal team, met eindelijk een goede lineup met paar van de beste fraggers te wereld. Maar wel met Karrigan, een van de oudste spelers en een van de slechtste fraggers dit toernooi. Kan zijn team hem er mee doortrekken? We zijn alvast benieuwd, want hij is nu al een van de meest legendarische en meest gewilde IGL's ter wereld.
+Maar het team (die we vooral volgende week zullen zien) om in de gaten te houden voor deze major is vooral Faze clan. Een geniaal team, met eindelijk een goede lineup met paar van de beste fraggers ter wereld. Maar wel met Karrigan, een van de oudste spelers en een van de slechtste fraggers dit toernooi. Kan zijn team hem er mee doortrekken? We zijn alvast benieuwd, want hij is nu al een van de meest legendarische en meest gewilde IGL's ter wereld.
 
 NaVi is de vorige major winnaar, met de beste speler ter wereld S1mple. Maar, het team, die bestaat uit Russen & Oekraïners, hebben een zware hit gekregen door de oorlog, interne ruzies over wie naar waar moet verhuizen en familie die in gevaar is, hakt er zwaar op in, wat ik uiteraard begrijp. Ze hebben maanden nauwelijks samen kunnen oefenen. Dat ze niet op het hoogste niveau zullen performen is wel duidelijk, maar de verwachtingen van hun sponsors & fans ligt uiteraard ook hoog.
 
 G2 met een van de jongste, maar enorm zwaar getalenteerde speler M0nesy EN een van de beste spelers Niko gecombineerd kan ook veel vuurwerk geven. Maar geplaagd onder een net verwisselde IGL, die ik momenteel nog enorm betwijfel qua impact, ben ik niet zeker of ze kunnen neerpoten wat wij er van gaan verwachten.
 
-Voor de rest deze group fase, Vitality, voorheen top 10 team, een enorme speler wissel ondergaan, waar ze naar een international roster zijn gegaan. Dus die spelen niet meer in hun moedertaal, ook iets wat zeker niet onderschat mag worden.
+Voor de rest deze group fase, Vitality, voorheen top 10 team, een enorme spelerswissel ondergaan, waar ze naar een international roster zijn gegaan. Dus die spelen niet meer in hun moedertaal, ook iets wat zeker niet onderschat mag worden.
 Astralis, ook 4 voudig Major kampioen, volledig veranderd van spelers, zien we nog veel zware cracks in hun setups. Maar alles kan.
 
-Verder nog een shoutout naar Complexity gaming, met het enigste Belgische stukje vertegenwoordiging, met Anton, hun analyst & assistant coach. Maar een heel jong team, dus de verwachtingen liggen niet bijzonder hoog, wat de druk beetje van de ketel haalt voor hun, dus wensen we hun veel succes!
+Verder nog een shoutout naar Complexity gaming, met het enige Belgische stukje vertegenwoordiging, met Anton, hun analyst & assistant coach. Maar een heel jong team, dus de verwachtingen liggen niet bijzonder hoog, wat de druk beetje van de ketel haalt voor hun, dus wensen we hun veel succes!
 
 Ik denk vooral dat Ence gaming hier gaat uitblinken. Ook niet meer het team dat paar jaar geleden in de Finals stond van de major. Waar we oorworm EZ4ENCE <https://www.youtube.com/watch?v=kPkT0jMjEu8> aan te danken hebben. Zij hebben de laatste weken bewezen dat ze ontzettend sterk staan, dus heb veel vertrouwen dat we hun gaan zien shinen op het podium volgende week.
 
 Voor de rest, geniet er van. Zijn er dingen waar je vragen over hebt, stuur ze mij gerust. Maar vooral, geniet en absorbeer de sfeer, die nu nog zal meevallen, vooral omdat het in kleine ruimtes gespeeld wordt. Maar volgende week, sfeer die door 40.000 man gaat uitgestraald worden, bij elk mooi schot of spannende ervaring er kreten geslaan worden die elk decibel niveau zal overstijgen. Waar ik elke dag ter plaatse van ga genieten & zal proberen neerpennen hier!
-Ook 10 tallen miljoen live views in 10 tallen talen gestreamed op tich platformen (zelf op VTM volgende week).
+Ook 10 tallen miljoen live views in 10 tallen talen gestreamd op tich platformen (zelfs op VTM volgende week).
 Dat is de major, en dat is iets dat we eindelijk mogen organiseren in Antwerpen, en iets waar ik ontzettend trots op ben.
 
 jNoxx.
