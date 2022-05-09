@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Intro to the CSGO Major"
+title: "CSGO Major kick-off"
 date: 2022-05-09 10:00:00
 categories: gaming
 featured_image: /images/csgo-major.jpg
