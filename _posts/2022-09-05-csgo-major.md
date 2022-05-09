@@ -6,7 +6,7 @@ categories: gaming
 featured_image: /images/csgo-major.jpg
 ---
 
-Inleiding voor leeks in CSGO.
+Inleiding voor leken in CSGO.
 
 ## Intro
 
