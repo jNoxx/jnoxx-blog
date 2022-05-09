@@ -34,19 +34,19 @@ Dit is mijn take/blog van dit kampioenschap in Antwerpen en mijn persoonlijke vi
 
 Met mijn 20 jaar esports ervaring, waarvan 15 jaar in het CS universum, heb ik wel een en ander opgepikt doorheen de jaren, en dat ga ik de komende weken met jullie gaan delen. Ik probeer dit zo consistent mogelijk te doen, maar de komende weken zullen vooral gaan over welke wedstrijden er zijn gespeeld en welke dingen ik heb opgemerkt.
 
-Dat dit kampioenschap in Antwerpen doorgaat is voor mij uiteraard, het beste dat ooit kon gebeuren. Nog net niet boven de geboorte van mijn zoon, maar dat moet ik verplicht schrijven van mijn vriendin die haar ogen in mijn rug aan het priemen zijn momenteel.
-Dat team META (<https://teammeta.eu/>) hier niet de pluimen gedeeltelijks op hun hoed mag steken zou gelogen zijn. Met Steven Leunens (eigenaar) uiteraard voorop. Als er mensen zijn in Vlaanderen die zich zo hard inzetten voor esports, dan zijn het zij wel. Ik kan vooral goed op sociale media & streams roepen over hoe cool esports is, maar ik probeer er ook veel rond te doen.
-Zij zijn de echte big shots die zich dagdagelijks inzetten met team META om esports op de kaart te krijgen. En dat bewijzen ze nu nog maar eens, zij hebben mee gelobbied & getrokken aan stad Antwerpen samen met PGL - degene die de Major dit jaar mochten organiseren van Valve - om een overeenkomst te krijgen om het te mogen laten doorgaan in het sportpaleis begot.
+Dat dit kampioenschap in Antwerpen doorgaat is voor mij uiteraard het beste dat ooit kon gebeuren. Nog net niet boven de geboorte van mijn zoon, maar dat moet ik verplicht schrijven van mijn vriendin wiens ogen in mijn rug aan het priemen zijn momenteel.
+Dat team META (<https://teammeta.eu/>) hier niet de pluimen deels op hun hoed mogen steken zou gelogen zijn. Met Steven Leunens (eigenaar) uiteraard voorop. Als er mensen zijn in Vlaanderen die zich zo hard inzetten voor esports, dan zijn zij het wel. Ik kan vooral goed op sociale media & streams roepen over hoe cool esports is, maar ik probeer er ook veel rond te doen, maar zij zijn de echte big shots die zich dagdagelijks inzetten met team META om esports op de kaart te krijgen.
+En dat bewijzen ze nu nog maar eens, zij hebben mee gelobbied & getrokken aan stad Antwerpen samen met PGL - degene die de Major dit jaar mochten organiseren van Valve - om een overeenkomst te krijgen om het te mogen laten doorgaan in het sportpaleis begot.
 En dat is alleen al een hele alinea waard, want, Thank you. Van alle fans in deze regionen, dat dit kan gebeuren, en dat ik, dit mag meemaken in ons eigen landje. Ik ben extreem fier & trots dat het eindelijk zo ver is. 9 mei, om 12 uur gaan de eerste games van start.
 
 Alle spelers & coaches zijn dit weekend in het Radisson Blu Astrid Hotel aangekomen, die volledig is afgehuurd de komende 2 weken voor dit toernooi.
-Daar zijn ook speciale ruimtes gemaakt om de group stages te spelen van de Major. Wat houd dit in, de komende week gaat er al geduchtig gestreden worden om te mogen spelen in het sportpaleis.
-Helaas gaan niet alle teams het privélege hebben om op de big stage in het sportpaleis te mogen staan. Enkel de top of the top die vorige major hebben afgerond krijgen alvast een free pass om direct door te stoten naar de volgende rondes.
+Daar zijn ook speciale ruimtes gemaakt om de group stages te spelen van de Major. Wat houdt dit in? Wel, de komende week gaat er al geduchtig gestreden worden om te mogen spelen in het sportpaleis.
+Helaas gaan niet alle teams het privélege hebben om op de big stage in het sportpaleis te mogen staan. Enkel de top of the top die de vorige major hebben afgerond krijgen alvast een free pass om direct door te stoten naar de volgende rondes.
 De rest, die gaat het nu gaan uitvechten in de group stages door middel van het "Swiss" eliminatie systeem.
-Wat houd dit exact in? Dit wil zeggen dat je 3 wins nodig hebt om door te stoten. Of 3 losses, en je ligt eruit. Klinkt simpel.
-Je begint als elk team met uiteraard 0-0 in scores. 0 wins, 0 losses, je gaat vanaf dan in BO1's spelen, Best of 1's (ga je vaker horen op de streams), dit betekent dat je 1 map hebt om je te bewijzen elke keer.
+Wat houd dit exact in? Dit wil zeggen dat je 3 wins nodig hebt om door te stoten of 3 losses, en je ligt eruit. Klinkt simpel.
+Je begint als elk team met uiteraard 0-0 in scores. 0 wins, 0 losses, je gaat vanaf dan in BO1's spelen, Best of 1's (ga je vaker horen op de streams), dit betekent dat je telkens 1 map hebt om je te bewijzen elke keer.
 Dit doe je minstens 2 of 3 keer. Als je 2-0 voorstaat of 0-2 achterstaat, dan moet je het met het BO3 systeem gaan uitvechten (dus 2 maps winnen van de 3).
-Dit zorgt dat we tegen einde van de week, iedereen die 3-0, 3-1, 3-2 staat, mogen gaan verwachten in het sportpaleis volgende week op het grote podium.
+Dit zorgt dat we tegen het einde van de week, iedereen die 3-0, 3-1, 3-2 staat, mogen gaan verwachten in het sportpaleis volgende week op het grote podium.
 
 Maar eerst, wat en hoe wordt Counter-Strike gespeeld, en hoe kan ik dat dan gaan volgen als gewone mens?
 
