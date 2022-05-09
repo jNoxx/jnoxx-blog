@@ -25,14 +25,14 @@ Alvast, als we het gemakkelijk willen uitleggen. Is de major het wereldkampioens
 Een totaal van 120 spelers (zonder coaches, analysts, mental & physical coaches, managers etc) gaan straks, klokslag 12 uur aan de slag met de eerste wedstrijd.
 Met als jongste telg Munkhbold "Techno4K" Sodbayar, 16 jaar, en wederom zijn eerste major tegenover mensen zoals Finn "Karrigan" Andersen, die al 32 kaarsjes mag uitblazen en al meerdere Major titels mag opspelden.
 
-Professionele esport teams die al miljoenen hebben gepompt in het opkopen van spelers & rosters om mee te kunnen competen op het hoogste niveau moeten het gaan opnemen tegen amateurteams die zich doorheen maandenlange qualificaties hebben geworsteld om hier, in Antwerpen of all places, het te gaan beslechten. Wat de esports scene net zo mooi maakt. It's anyones game, letterlijk.
-In CSGO heb je geen franchising zoals in andere esports, jij kan als café-voetbal-sport gewijs teampje het in principe opnemen tegen de Ronaldo's & Messi's van deze wereld. Als je je maar door alle voorrondes kan worstelen, en die zijn niet mals. Er wordt enorm hard gestreden voor de beperkte plekken, en de laatste weken voor dit kampioenschap is er serieus afgezien, geweend maar vooral, hard gestreden.
+Professionele esport teams die al miljoenen hebben gepompt in het opkopen van spelers & rosters om mee te kunnen competen op het hoogste niveau moeten het gaan opnemen tegen amateurteams die zich doorheen maandenlange kwalificaties hebben geworsteld om hier, in Antwerpen of all places, het te gaan beslechten. Wat de esports scene net zo mooi maakt. It's anyones game, letterlijk.
+In CSGO heb je geen franchising zoals in andere esports. Jij kan als cafévoetbalsport-gewijs teampje het in principe opnemen tegen de Ronaldo's & Messi's van deze wereld. Als je je maar door alle voorrondes kan worstelen, en die zijn niet mals. Er wordt enorm hard gestreden voor de beperkte plekken, en de laatste weken voor dit kampioenschap is er serieus afgezien, geweend maar vooral, hard gestreden.
 
 Dit is mijn take/blog van dit kampioenschap in Antwerpen en mijn persoonlijke visie.
 
 ## Hoe en wat dan?
 
-Met mijn 20 jaar esports ervaring, waarvan 15 jaar in het CS universum. Heb ik wel een en ander opgepikt doorheen de jaren, en dat ga ik de komende weken met jullie gaan delen. Ik probeer dit zo consistent mogelijk te doen, maar de komende weken zal vooral gaan over welke wedstrijden er zijn gespeeld en welke dingen ik heb opgemerkt.
+Met mijn 20 jaar esports ervaring, waarvan 15 jaar in het CS universum, heb ik wel een en ander opgepikt doorheen de jaren, en dat ga ik de komende weken met jullie gaan delen. Ik probeer dit zo consistent mogelijk te doen, maar de komende weken zullen vooral gaan over welke wedstrijden er zijn gespeeld en welke dingen ik heb opgemerkt.
 
 Dat dit kampioenschap in Antwerpen doorgaat is voor mij uiteraard, het beste dat ooit kon gebeuren. Nog net niet boven de geboorte van mijn zoon, maar dat moet ik verplicht schrijven van mijn vriendin die haar ogen in mijn rug aan het priemen zijn momenteel.
 Dat team META (<https://teammeta.eu/>) hier niet de pluimen gedeeltelijks op hun hoed mag steken zou gelogen zijn. Met Steven Leunens (eigenaar) uiteraard voorop. Als er mensen zijn in Vlaanderen die zich zo hard inzetten voor esports, dan zijn het zij wel. Ik kan vooral goed op sociale media & streams roepen over hoe cool esports is, maar ik probeer er ook veel rond te doen.
