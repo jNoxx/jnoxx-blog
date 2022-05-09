@@ -19,8 +19,8 @@ Momenteel spelen we CS:GO. Ofwel Counter-Strike: Global Offensive, de 3e grote i
 De grote lijnen van de game zijn vooral CS1.6, CS Source & nu de laatste 10 jaar gaan we aan de slag in Global Offensive.
 Een game die de laatste 20 jaar vooral wordt gespeeld op de PC. Hier en daar was er al eens uitzondering, zoals een Xbox port die al jaren niet meer ondersteund wordt.
 
-Maar, wat is nu de Major waar zoveel over gepraat wordt? Waarom is het zo speciaal dat die in België is, en vooral, hoe kan ik als leek hier iets van begrijpen?
-Nu, alvast, als we het gemakkelijk willen uitleggen. Is de major het wereldkampioenschap dat officieel wordt gesponsord door de ontwikkelaar Valve, wat doorgaans 2x per jaar wordt georganiseerd om te meten welk team momenteel de beste is.
+Maar, wat is nu de Major waar zoveel over gepraat wordt? Waarom is het zo speciaal dat deze in België doorgaat, en vooral, hoe kan ik als leek hier iets van begrijpen?
+Alvast, als we het gemakkelijk willen uitleggen. Is de major het wereldkampioenschap dat officieel wordt gesponsord door de ontwikkelaar Valve, wat doorgaans 2x per jaar wordt georganiseerd om te meten welk team momenteel de beste is.
 
 Totaal van 120 spelers (zonder coaches, analysts, mental & physical coaches, managers etc) gaan straks, klokslag 12 uur aan de slag met de eerste wedstrijd.
 Met als jongste telg Munkhbold "Techno4K" Sodbayar, 16 jaar, en wederom zijn eerste major tegen over mensen zoals Finn "Karrigan" Andersen, die al 32 kaarsjes mag uitblazen en al meerdere Major titels mag opspelden.
