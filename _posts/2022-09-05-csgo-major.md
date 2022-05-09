@@ -22,7 +22,7 @@ Maar, wat is nu de Major waar zoveel over wordt gepraat? Waarom is het zo specia
 Nu, alvast, als we het gemakkelijk willen uitleggen. Is de major het wereldkampioenschap dat officieel wordt gesponsort door de ontwikkelaar Valve, wat doorgaans 2x per jaar wordt georganiseerd om te meten welk team is momenteel de beste in CSGO.
 
 Totaal van 120 spelers (zonder coaches, analysts, mental & physical coaches, managers etc) gaan straks, klokslag 12 uur aan de slag met de eerste wedstrijd.
-Met als jongste telg Ilya "m0nesy" Osipov, 16 jaar, en wederom zijn eerste major tegen over mensen zoals Finn "Karrigan" Andersen, die al 32 kaarsjes mag uitblazen en al meerdere Major titels mag opspelden.
+Met als jongste telg Ilya "m0nesy" Osipov, net 17 jaar geworden, en wederom zijn eerste major tegen over mensen zoals Finn "Karrigan" Andersen, die al 32 kaarsjes mag uitblazen en al meerdere Major titels mag opspelden.
 
 Professionele esport teams die al miljoenen hebben gepompt in het opkopen van spelers & rosters om mee te kunnen competen op het hoogste niveau moeten het gaan opnemen tegen amateurteams die zich doorheen maandenlange qualificaties hebben geworstelt om hier, in Antwerpen of all places, het te gaan opnemen tegen elkaar. Wat de esports scene net zo mooi maakt. It's anyones game, letterlijk.
 In CSGO heb je geen franchising zoals in andere esports, jij kan als café-voetbal-sport gewijs teampje het in principe opnemen tegen de Ronaldo's & Messi's van deze wereld. Als je je maar door alle voorrondes kan worstelen, en die zijn niet mals. Er wordt enorm hard gestreden voor de beperkte plekken, en de laatste weken voor dit kampioenschap is er serieus afgezien, geweent maar vooral, hard gestreden.
