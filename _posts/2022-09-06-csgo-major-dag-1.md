@@ -72,6 +72,6 @@ Voor de rest ziet alles er vrij straight forward uit qua wins, weinig spicy matc
 
 IHC & Renegades staan trouwens op de rand om al uit de Major gegooit te worden. Hopelijk kunnen ze de stress aan, want met een 0-2 in de Swiss brackets, speel je hopelijk alsof je letterlijke leven er van af hangt.
 
-Veel kijk plezier en tot op Twitter! <https://wwww.twitter.com/jnoxxx>
+Veel kijk plezier en tot op Twitter! <https://www.twitter.com/jnoxxx>
 
 jNoxx.
