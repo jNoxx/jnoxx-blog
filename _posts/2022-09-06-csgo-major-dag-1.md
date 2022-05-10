@@ -10,7 +10,7 @@ Druilerige boel & chokes.
 
 ## De start
 
-Het was eindelijk zo ver, de eerste matchen gingen gespeeld worden. Door het drukke schema werd er beslist met 2 streams te werken, waarop aan de lopende band matchen na elkaar gespeeld werden. Wat er voor zorgde dat ik jammer genoeg niet elke match zelf heb kunnen volgen. Heb enorm mijn best gedaan om soms 2 kleine venstertjes te draaien naast mijn gewoon werk om toch wat up to date te blijven zodat ik deze tekstjes kan schrijven. Maar soms was het niet eens nodig, want de match schreef zichzelf...
+Het was eindelijk zo ver, de eerste matchen gingen gespeeld worden. Door het drukke schema werd er beslist met 2 streams te werken, waarop aan de lopende band matchen na elkaar gespeeld werden. Dat zorgde er voor dat ik jammer genoeg niet elke match zelf heb kunnen volgen. Heb enorm mijn best gedaan om soms 2 kleine venstertjes te draaien naast mijn gewoon werk om toch wat up to date te blijven zodat ik deze tekstjes kan schrijven. Maar soms was het niet eens nodig, want de match schreef zichzelf...
 Net zoals de eerste match van de dag.
 
 ## Overview matchen
