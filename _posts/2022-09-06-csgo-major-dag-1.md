@@ -21,7 +21,7 @@ Maar dat zorgde de laatste maanden niet persé voor het vuurwerk dat mensen hadd
 Sterker nog, het is team Complexity niet eens gelukt om meer als 100 damage te doen doorheen de hele game, terwijl je elke ronde start met 100 hp, zou je wel iets meer verwachten.
 Dat de Fransozen & Denen dus geen probleem hadden met Complexity van de kaart te vegen is misschien wel duidelijk.
 Analyst van team Complexity Anton was dan ook niet te spreken over de wedstrijd, die ze met 16-1 verloren.
-Complexity zag er enorm "shaky" uit. Misschien dat het aan hun vrij jonge spelers & het feit dat het een nieuw is lag, maar ik denk dat ze liever zo snel mogelijk vergeten dat deze match ooit is gespeeld.
+Complexity zag er enorm "shaky" uit. Misschien dat het aan hun vrij jonge spelers & het feit dat het een nieuw team is lag, maar ik denk dat ze liever zo snel mogelijk vergeten dat deze match ooit is gespeeld.
 Ook de spits afbijten op een major met miljoenen kijkers zal misschien niet geholpen hebben.
 Communicatie, rotatie, tradability en vooral game sense was letterlijk nergens te vinden, alsof die al terug op het vliegtuig terug richting NA zat. Ze werden als het ware als een halfdode muis rondgegooid door Vitality die er als een speelse kat mee aan het knoeien was.
 
