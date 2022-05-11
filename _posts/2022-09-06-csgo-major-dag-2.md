@@ -15,26 +15,26 @@ Jammer genoeg voelden vele spelers duidelijk de stress en zijn er hier en daar t
 
 ## Overview matchen
 
-We begonnen met een BO1 tussen Bad News Eagles & de veteranen Imperial. Die laatste konden net als gister weer niet op gang komen. De motivatie is duidelijk ook ver te zoeken en of ze het excuus jetlag nog kunnen gebruiken betwijfel ik. De passie die je vroeger duidelijk zag smelte als sneeuw voor de zon in het warme Antwerpen.
+We begonnen met een BO1 tussen Bad News Eagles & de veteranen Imperial. Die laatste konden net als gister weer niet op gang komen. De motivatie is duidelijk ook ver te zoeken en of ze het excuus jetlag nog kunnen gebruiken betwijfel ik. De passie die je vroeger duidelijk zag smolt als sneeuw voor de zon in het warme Antwerpen.
 Fer keek zo stoïcijns voor zich uit, dat het leek alsof hij zo snel mogelijk terug onder de Braziliaanse zon wou zitten.
 Imperial bezit volgens HLTV een gaming house in NA voor bootcamps, maar daar zijn ze volgens hun zelf nog nooit geweest. En dat valt duidelijk op als je ze ziet klungelen soms op de server.
 Geen match om echt over naar huis te schrijven. 16-12 voor de Kosovaren.
 
-Eternal Fire zag er veelbelovend uit tegen de Russen, zoals gister voorspelt zat er wel wat pit en potentieel in. Maar de Turken konden maar geen footing vinden en veel rondjes aan elkaar naaien.
-Woxic & Xantares waren on a roll, zeker Woxic bewees dat zijn pols duidelijk opgewarmt was en zijn flick shots gingen bijzonder hard in het begin. Maar vanaf de Russen wat voeten in de aarde konden krijgen begonnen ze de grind om het af te werken. 16-11 voor Team Spirit.
+Eternal Fire zag er veelbelovend uit tegen de Russen, zoals gister voorspeld zat er wel wat pit en potentieel in. Maar de Turken konden maar geen footing vinden en veel rondjes aan elkaar naaien.
+Woxic & Xantares waren on a roll, zeker Woxic bewees dat zijn pols duidelijk opgewarmd was en zijn flick shots gingen bijzonder hard in het begin. Maar vanaf de Russen wat voeten in de aarde konden krijgen begonnen ze de grind om het af te werken. 16-11 voor Team Spirit.
 
 Complexity... Ik durf er bijna niet over schrijven. Na wat we te zien kregen de eerste dag, beloofde het niet veel soeps.
 Tot we een vastberaden Complexity op de server zagen lopen in de eerste pistol round en bewezen dat ze hier niet waren om te verliezen. Door hun snelle speelstijl waar communicatie vooral centraal stond en de duidelijke "connectie" die de spelers precies voelden bij de trades. Leek het alsof ze waren herboren als een feniks uit hun assen van dag 1.
 Ze lieten Outsiders alle kanten van de map zien. Na wat getouwtrek konden ze de eerste helft op hun T side afsluiten met 7-8. Wat ons een geniale tweede helft zou moeten opleveren, want dan kregen ze de "makkelijkere" CT side.
-Maar dan besloten ze om alles te vergeten wat ze net hadden geleerd en hun brein blijkbaar in de vuilbak hebben gekiepert. De meest typische NA fouten werden gemaakt oa. geen duidelijke communicatie en vooral, zeer zwakke trades van de Amerikanen. Voor Outsiders leek het als een schaakspel waar ze perfect Complexity in elke hoek konden drijven die ze wouden. Erger nog, Complexity had zelf kansen hier en daar, maar die verknoeiden ze vakkundig terwijl de hele wereld zijn handen in het haar gooide bij elke domme beslissing of gemist shot.
+Maar dan besloten ze om alles te vergeten wat ze net hadden geleerd en hun brein blijkbaar in de vuilbak hebben gekieperd. De meest typische NA fouten werden gemaakt oa. geen duidelijke communicatie en vooral, zeer zwakke trades van de Amerikanen. Voor Outsiders leek het als een schaakspel waar ze perfect Complexity in elke hoek konden drijven die ze wouden. Erger nog, Complexity had zelf kansen hier en daar, maar die verknoeiden ze vakkundig terwijl de hele wereld zijn handen in het haar gooide bij elke domme beslissing of gemist shot.
 Zeer zwakke prestatie van verschillende spelers zorgde ervoor dat ze geen schijn van kans meer hadden en het onderspit moesten delven waardoor ze 9-16 tegen kregen van Outsiders.
 
 Brazilianen MIBR vs de Denen van Astralis beloofde wel een goede match te worden. Tot Astralis besliste om er korte metten mee te maken. Ze pakte vlug de 12-3 leiding, en we zagen ze al lachend de match mentaal al binnen halen. Tot ze zelf de T side moesten gaan spelen en MIBR duidelijk liet zien dat ze de hoop nog niet hadden opgegeven.
 Een comeback van jewelste kwam ten tonele, gelukkig had speler van Astralis BlameF hier geen zin in, en maakte het dan maar vakkundig af.
 Na een billenknijper-comebackje haalde Astralis dan toch de 16-13.
 
-De eerste eliminatie rondes zijn ook gespeeld. De Australiërs (waar ik trouwens goede hoop in had) van Renegades stonden al 0-2 achter in de Swiss bracket. Wat betekent dat deze match alles bepalend was, maar dat gelde ook voor hun tegenpartij, het Mongools team IHC.
-Loser is out. IHC liet zien dat ze geen zin hadden om al terug op het vliegtuig te kruipen en kon veel clutch rondes in hun voordeel krijgen door individuele skill. Een relatief vlotte 2-0 zorgde ervoor dat zij toch nog een kleine kans hebben deze major. Jammer genoeg zijn de Renegades uitschakelt en gaan ze nog veel teammeetings rond de BBQ moeten houden om hier van te recupereren.
+De eerste eliminatie rondes zijn ook gespeeld. De Australiërs (waar ik trouwens goede hoop in had) van Renegades stonden al 0-2 achter in de Swiss bracket. Wat betekent dat deze match alles bepalend was, maar dat gold ook voor hun tegenpartij, het Mongools team IHC.
+Loser is out. IHC liet zien dat ze geen zin hadden om al terug op het vliegtuig te kruipen en kon veel clutch rondes in hun voordeel krijgen door individuele skill. Een relatief vlotte 2-0 zorgde ervoor dat zij toch nog een kleine kans hebben deze major. Jammer genoeg zijn de Renegades uitgeschakeld en gaan ze nog veel teammeetings rond de BBQ moeten houden om hier van te recupereren.
 
 Verder hadden we Vitality tegen Forze. Wat een bijzonder spannende match werd. Toen Vitality de eerste map Nuke verloor tegen de Russen begon menig Vitality fan toch een beetje te zweten.
 Vitality tikte vlot Forze naar huis op De_Dust2, en dat was nodig, want Russen zijn normaal enkel bezig met Dust grinden. Dus de kans was zeker reeël dat ze een 0-2 tegen het gezicht kregen. Maar Zywoo zette zijn insane skill level tentoon waardoor ze Dust vlot binnen konden pakken.
@@ -63,7 +63,7 @@ Dag 3 komt eraan binnen 2 uurtjes, best spannend, want vandaag ga ik live gaan k
 Er zijn een paar elimination matches vandaag, dus ik denk wel dat ik een paar zwaar teleurgestelde gezichten ga zien vandaag. En met mijn plaatsvervangende schaamte kan dat wel eens pijnlijk worden.
 Imperial vs IHC & MIBR vs Eternal Fire worden dus spannende BO3's, zeker voor de spelers, organisaties & managers.
 
-Vooral Complexity vs Liquid is eentje die persoonlijk moeiljk wordt om te kijken, de 2 enigste NA teams die er nog zijn, en ze staan beide op de rand van eliminatie. En dat het net ZIJ zijn die tegen elkaar op moeten boksen voor de eliminatie is een zware dobber. En eentje die ik van zeer dichtbij, letterlijk, ga gaan bekijken. Ik schat de kansen vrij 50/50. Maar Liquid heeft meer ervaring, en in een BO3 is zoiets wel belangrijk om het te gaan uitgrinden.
+Vooral Complexity vs Liquid is eentje die persoonlijk moeilijk wordt om te kijken, de 2 enigste NA teams die er nog zijn, en ze staan beide op de rand van eliminatie. En dat het net ZIJ zijn die tegen elkaar op moeten boksen voor de eliminatie is een zware dobber. En eentje die ik van zeer dichtbij, letterlijk, ga gaan bekijken. Ik schat de kansen vrij 50/50. Maar Liquid heeft meer ervaring, en in een BO3 is zoiets wel belangrijk om het te gaan uitgrinden.
 
 Astralis versus Spirit kan ook nog fijn zijn, en dat is net de opener van vandaag, dus enjoy!
 
