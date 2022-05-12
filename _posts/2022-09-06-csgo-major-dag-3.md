@@ -25,7 +25,7 @@ In het zonnetje bakte ik, ruitje open, rustig cruisend, tot de harde realiteit v
 Vlug de oortjes in, zodat we zo min mogelijk van de wedstrijd missen terwijl ik mijn tocht verder zet naar de Starbucks. Hipster gewijs waggelde ik binnen en ontmoette ik daar mijn gezel voor de komende uren Syroop.
 Afspraken werden gemaakt over wat de bedoeling was van de nieuwe Red Bull Cheatcode video. Terwijl ik geïntroduceerd wordt als CS enthousiasteling in de vlog gaat mijn hart aan 200 km per uur, want ik zie een klein bannertje hangen op het Radisson hotel. "PGL Major Antwerpen". Dit is waarvoor we hier zijn.
 
-Binnen worden we direct door een security guard tegen gehouden terwijl we knullig vertellen dat we hier op invitatie zijn door Steven Leunens, de held die ik in vlog 1 van dit CS verhaal al aanhaalde. Terwijl we aan het wachten waren om opgehaald te worden in de lobby keek ik zachtjes rond om bekende gezichten te spotten. Uiteraard werd ik niet teleurgesteld en kon ik hier en daar al wat coaches & managers spotten die me direct opvielen. Als een klein kind fluisterde ik constant naar Syroop "dat is X van partij Y". Een vrolijk kind weliswaar.
+Binnen worden we direct door een security guard tegen gehouden terwijl we knullig vertellen dat we hier op invitatie zijn door Steven Leunens, de held die ik in blog 1 van dit CS verhaal al aanhaalde. Terwijl we aan het wachten waren om opgehaald te worden in de lobby keek ik zachtjes rond om bekende gezichten te spotten. Uiteraard werd ik niet teleurgesteld en kon ik hier en daar al wat coaches & managers spotten die me direct opvielen. Als een klein kind fluisterde ik constant naar Syroop "dat is X van partij Y". Een vrolijk kind weliswaar.
 
 Toen we werden opgehaald door Steven bleek al snel dat PGL niet veel zin heeft in pottenkijkers, de Guest passes in het Radisson worden als extreem zeldzame Charizard Pokemon kaarten uitgedeeld & herverdeeld. De vorige 2 guests waaronder mijn good old friend William Boeva moesten hun passes doorgeven zodat we een rondleiding konden krijgen.
 
@@ -42,8 +42,9 @@ Op de gangen komen we tientallen gezichten tegen die ik enkel op het grote scher
 We worden langs green rooms, makeup, productie, lunch area's, casting rooms & analyst desk begeleid. Alles in een mach 3 snelheid terwijl ik voor Syroops video probeer heel snel & stil dingen probeer toe te fluisteren.
 Als een wervelwind zijn we overal doorgevlogen, en voor je het weet sta je terug in de lobby. De pokemonkaart-guestpass mocht weer doorgegeven worden aan de volgende. De tour zat er jammer genoeg op.
 Maar wat nu te doen? We konden in de lobby blijven hangen waar grote TV's hangen met beide streams.
-Ik praat nog even bij met William en Syroop, misschien tijd om een hapje te gaan eten. Ondertussen neem ik afscheid van Syroop omdat hij nog ander "echt" werk te doen heeft. Wat als een realiteits slap komt voor mij, omdat CS de komende weken nog even alles is voor mij. Ook al verdien ik er geen cent mee.
-William en ik, vreetzakken als we zijn, zijn aan het twijfelen om misschien een hapje te gaan eten in de buurt om verder over CS te praten.
+Ik praat nog even bij met William en Syroop, praten over wat we net hebben gezien, nemen nog wat shots op voor de Cheatcode video.
+Kort erna neem ik afscheid van Syroop omdat hij nog ander "echt" werk te doen heeft. Wat als een realiteits slap komt voor mij, omdat CS de komende weken nog even alles is voor mij. Ook al verdien ik er geen cent mee.
+William en ik, vreetzakken als we zijn, twijfelen dan maar om misschien een hapje te gaan eten in de buurt om verder over CS te praten.
 
 Tot in de lobby komt gelopen, Devilwalk, die ik eerder aanhaalde. Hij knikt en plant zich naast ons neer om de wedstrijden te kijken.
 *knijpt in eigen wang* "Is dit aan het gebeuren?"" vroeg ik mezelf af. Terwijl hij af en toe een sneer geeft naar de tv knik ik alvast braaf mee.
