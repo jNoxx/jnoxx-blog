@@ -91,13 +91,13 @@ Forze had er echter genoeg van en haalde bijna 4 rondes na elkaar om het af te w
 Outsiders echter, lieten zien dat zo'n map loss hun niet deert. Vlot pakken ze de komende 2 maps Mirage & Inferno voor hun rekening met 16-10 & 16-11 en stoten ook zij door naar de Legends stage die start komende zaterdag.
 
 Ik durf bijna niet beginnen over de match van Complexity vs Liquid.
-Dat complexity duidelijk geen zin meer heeft om met elkaar te spelen werd snel duidelijk. Zelden zo'n onsamenhangend partijtje CSGO gezien. En dat ook Junior weer bijna geen enkel shot kon raken hielp het team niet echt.
+Dat Complexity duidelijk geen zin meer heeft om met elkaar te spelen werd snel duidelijk. Zelden zo'n onsamenhangend partijtje CSGO gezien. En dat ook Junior weer bijna geen enkel shot kon raken hielp het team niet echt.
 De Franse speler Shox van Liquid had duidelijk zin in nog een kans, en hielp zijn team stevig door te fraggen & te brullen voor zijn team op te hypen. Met goed getimede flanks werden de mannen van Complexity keer op keer verrast.
 Floppy van CoL liet zien dat hij wel alles wou doen om toch te proberen winnen. Maar als enigste speler met positieve KD over de 2 matchen laat zien dat hij het hele team niet op zijn rug kan dragen, wat sowieso nooit de bedoeling mag zijn.
 2e map Vertigo was dan ook bijzonder pijnlijk staaltje CS van Complexity, met maar 3 rondjes op de T side dacht iedereen dat het instant klaar zou zijn. We zagen een opflakkering, en een glimmer of hope dat ze terug zouden komen met een paar zieke clutches van de Col squad.
 Maar Liquid zette zijn voet neer en trok de overwinning over de streep. 2-0 voor Liquid. Complexity mag naar huis.
 
-Ence vs bNE kon wel wat fijne CS voorleggen. Wetende dat Ence een van de favorieten is voor deze titel, en bNE als enigste team zonder organisatie waarbij ze alles zelf betalen, zou dit eigenlijk moeten betekenen dat het easy zou moeten zijn voor Ence.
+Ence vs bNE kon wel wat fijne CS voorleggen. Wetende dat Ence een van de favorieten is voor deze titel, en bNE als enige team zonder organisatie waarbij ze alles zelf betalen, zou dit eigenlijk moeten betekenen dat het easy zou moeten zijn voor Ence.
 Niets was minder waar, Ence startte belachelijk hard met een 12-3 lead, maar bNE liet zien dat ze hier niet waren om te verliezen, ze haalden alles boven dat ze hadden.
 De comeback was real, en wij geloofden er in, dat bNE zelf de leiding nam na de full comeback is zeker benoemenswaardig.
 Maar Ence had genoeg van het spelen met zijn prooi en werkte het af met 16-13.
