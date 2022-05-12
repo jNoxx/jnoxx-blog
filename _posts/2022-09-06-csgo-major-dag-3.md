@@ -10,7 +10,7 @@ Verloren hoop en het Raddison.
 
 ## De start
 
-Dag 3 hebben we er net opzitten, en wat voor een dag was het weer! Voor mij was het alvast een heel speciale. Maar ook voor de NA CS scene zijn er rake klappen gevallen.
+Dag 3 hebben we er net opzitten, en wat voor een dag was het weer! Voor mij was het alvast een heel speciale dag. Maar ook voor de NA CS scene zijn er rake klappen gevallen.
 
 ## Het Radisson
 
