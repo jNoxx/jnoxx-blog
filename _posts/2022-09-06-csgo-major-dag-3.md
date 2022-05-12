@@ -63,7 +63,7 @@ Dat ik een ping pong balletje toe gooide naar Zywoo, de nummer 1 speler 2 jaar o
 
 Jammer genoeg kwam er ook een einde aan al die uren praten over CS, en nam ik afscheid van Sjokz, Maniac & Devilwalk.  
 Heb nog mijn excuses aangeboden aan Sjokz dat ik ze had proberen mentaal chanteren met het feit dat we honden/katten hadden toen ik ze vorige week vroeg om eens te gast te zijn bij Gamekast.
-Mijn uiterste dankbaarheid getoond bij Devilwalk & Maniac, om mij te woord te staan, ook al snapten ze waarschijnlijk totaal niet wat ik zat te doen in die lobby of uberhaupt wie de hell ik was. Daarom apprecieer ik het alleen des te meer dat ze zichzelf vriendelijk voorstelden en meededen in de gesprekken.
+Mijn uiterste dankbaarheid getoond bij Devilwalk & Maniac, om mij te woord te staan, ook al snapten ze waarschijnlijk totaal niet wat ik zat te doen in die lobby of überhaupt wie de hell ik was. Daarom apprecieer ik het alleen des te meer dat ze zichzelf vriendelijk voorstelden en meededen in de gesprekken.
 
 Vrolijke, voldane jNoxx kon zijn weg vervoegen naar huis, maar er zijn blijkbaar ook nog wedstrijden gespeeld?
 
