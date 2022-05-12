@@ -6,7 +6,7 @@ categories: gaming
 featured_image: /images/csgo-major.jpg
 ---
 
-Verloren hoop en het Raddison.
+Verloren hoop en het Radisson.
 
 ## De start
 
@@ -20,10 +20,10 @@ Bleek dat Jerre van Gamekast zijn vest was vergeten bij de opnames van de dag er
 Na een halfuur de foute richting uit te rijden naar Gent en mijn taakjes kon afvinken, klikte ik de auto in sport modus en begon ik aan de trip naar Antwerpen, waar ik had afgesproken met Syroop, iedereens favoriete youtube-figuur.
 
 In de auto de stream van PGL opgezet, zodat ik toch het begin van de wedstrijd van Astralis vs Team Spirit kon meepikken.
-In het zonnetje bakte ik, ruitje open, rustig cruisend, tot de harde realiteit van Antwerpen al snel terug binnen sijpelde toen de nieuw gebouwde tunnels op de Leien dicht waren, een grote slagboom versperde mij de weg. Zelf Waze was in de war, en probeerde me via de kleine weggetjes naar het Raddison te loodsen. Na meer als een half uur vast te staan kwam er eindelijk actie en kon ik afstevenen op de parking onder het Astrid plein. We waren er.
+In het zonnetje bakte ik, ruitje open, rustig cruisend, tot de harde realiteit van Antwerpen al snel terug binnen sijpelde toen de nieuw gebouwde tunnels op de Leien dicht waren, een grote slagboom versperde mij de weg. Zelfs Waze was in de war, en probeerde me via de kleine weggetjes naar het Radisson te loodsen. Na meer als een half uur vast te staan kwam er eindelijk actie en kon ik afstevenen op de parking onder het Astrid plein. We waren er.
 
 Vlug de oortjes in, zodat we zo min mogelijk van de wedstrijd missen terwijl ik mijn tocht verder zet naar de Starbucks. Hipster gewijs waggelde ik binnen en ontmoette ik daar mijn gezel voor de komende uren Syroop.
-Afspraken werden gemaakt over wat de bedoeling was van de nieuwe Red Bull Cheatcode video. Terwijl ik geïntroduceerd wordt als CS enthousiasteling in de vlog gaat mijn hart aan 200 km per uur, want ik zie een klein bannertje hangen op het Radisson hotel. "PGL Major Antwerpen". Dit is waarvoor we hier zijn.
+Afspraken werden gemaakt over wat de bedoeling was van de nieuwe Red Bull Cheatcode video. Terwijl ik geïntroduceerd word als CS enthousiasteling in de vlog gaat mijn hart aan 200 km per uur, want ik zie een klein bannertje hangen op het Radisson hotel. "PGL Major Antwerpen". Dit is waarvoor we hier zijn.
 
 Binnen worden we direct door een security guard tegen gehouden terwijl we knullig vertellen dat we hier op invitatie zijn door Steven Leunens, de held die ik in blog 1 van dit CS verhaal al aanhaalde. Terwijl we aan het wachten waren om opgehaald te worden in de lobby keek ik zachtjes rond om bekende gezichten te spotten. Uiteraard werd ik niet teleurgesteld en kon ik hier en daar al wat coaches & managers spotten die me direct opvielen. Als een klein kind fluisterde ik constant naar Syroop "dat is X van partij Y". Een vrolijk kind weliswaar.
 
@@ -81,7 +81,7 @@ Na een relatief makkelijke win op Overpass met 16-10 was de druk al iets meer we
 Na een best goede eerste helft, waar het 10-5 was voor de Brazilianen, moesten ze het gaan afwerken op de T side op Inferno.
 Een van de meest moeilijke helften in CS. Na een kleine comeback van IHC beslisten de Brazilianen er dan maar korte metten mee te maken en de win binnen te rijven. 16-12 waardoor ze de 2 maps binnenhaalden die nodig waren voor de win. Imperial heeft ook nog 1 kans om de Legends stage te halen.
 
-Outsiders tegen Forze, dat het een spannende wedstrijd ging worden was wel voorspelt, ik ben het vergeten uittypen gister door mijn haast om te vertrekken. Maar dat het een knaller ging worden wisten we wel.
+Outsiders tegen Forze, dat het een spannende wedstrijd ging worden was wel voorspeld, ik ben het vergeten uittypen gister door mijn haast om te vertrekken. Maar dat het een knaller ging worden wisten we wel.
 De opener Dust2, beide een van hun favoriete mappen, beloofde vuurwerk.
 Maar het werd bijna zielig. Forze stond voor ze het wisten al 11-1 voor. Dat Outsiders aan het panikeren was konden we nergens aan zien. Het team (dat verwacht wordt om uit elkaar te gaan na dit tornooi) liet zich niet doen en kon de laatste 2 rondjes nog oppikken.
 De CT side liet zien dat Outsiders weinig fucks gaven dat ze zoveel rondes waren verloren op de T side. 8 rondjes pakten ze vlot na elkaar op de CT side, met elke keer weer iemand die kon clutchen.
