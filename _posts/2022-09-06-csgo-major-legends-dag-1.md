@@ -98,7 +98,7 @@ Het wordt wel een fijne wedstrijd, alleen betwijfel ik of Liquid tegen de echte 
 
 Copenhagen wolves bewees dat ze zeker niet onderschat mogen worden.
 Met recent wins over Entropiq, NIP & Eternal Fire kunnen we stellen dat het zeker geen sukkelaartjes zijn.
-Zij moeten het wel gaan opnemen tegen bNE, die net knallers van formaat hebben geleverd de afgelopen dagen. Of CHW warm genoeg gaat staan om het Kosovaarse powerhouse tegen te gaan betwijfel ik dan ook een beetje. Maar kan zeker een fijne game gaan worden.
+Zij moeten het wel gaan opnemen tegen bNE, die net knallers van formaat hebben geleverd de afgelopen dagen. Of CHF warm genoeg gaat staan om het Kosovaarse powerhouse tegen te gaan betwijfel ik dan ook een beetje. Maar kan zeker een fijne game gaan worden.
 
 Erna gaan we NIP vs Vitality zien. NIP is een momenteel wel een beetje een gebroken team.
 Met veel player swaps het laatste 1.5 jaar zonder echt veel progress. Een onwijs getalenteert team, die het maar niet lukt om consequent titels te gaan binnen halen.
