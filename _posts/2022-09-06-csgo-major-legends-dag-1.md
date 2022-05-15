@@ -120,7 +120,7 @@ NiP is ook een paard waar je liever niet op wilt wedden. De ene wedstrijd knalle
 Ik weet niet goed wat ik er van moet vinden maar met zo'n belachelijk groot staff team achter hun liggen de verwachtingen erg hoog.
 Kan zeker een banger zijn!
 
-Verder krijgen we een clash van de Russen. Cloud9, de Amerikaanse organisatie pikte net voor de major de als voorheen gekende Virtus Pro squad op. Die niet meer mochten spelen onder de banner van VP wegens de sancties tegen Rusland. Met Cloud9 die net zonder CS:GO roster zat rook een dealtje, en kon door de sancties met een schamele 1 miljoen het voorheen nummer 1 team van de wereld uitkopen.
+Verder krijgen we een clash van de Russen. Cloud9, de Amerikaanse organisatie pikte net voor de major de als voorheen gekende Gambit squad op. Die niet meer mochten spelen onder de banner van VP wegens de sancties tegen Rusland. Met Cloud9 die net zonder CS:GO roster zat rook een dealtje, en kon door de sancties met een schamele 1 miljoen het voorheen nummer 1 team van de wereld uitkopen.
 De eerste keer dat ze onder de naam Cloud9 gaan spelen is direct tegen Outsiders die we al uitvoerig hebben besproken de afgelopen week.
 2 Russische teams die elkaar goed kennen in het spel, kan zeker vuurwerk gaan geven!
 
