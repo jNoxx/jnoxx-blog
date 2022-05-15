@@ -140,13 +140,20 @@ Laten we hopen dat het een leuke match wordt alvast ;)
 
 Veel kijk plezier en tot op Twitter! <https://www.twitter.com/jnoxxx>
 Voor alle andere manieren om de wedstrijden te kijken kan je terecht op
+
 🅰️ Stream <http://twitch.tv/pgl>
+
 🅱️ Stream <http://twitch.tv/pgl_csgo>
+
 Youtube, in 4K waar je kan terugspoelen.
 Het eigen platform van PGL.
+
 <https://csgo.pglesports.com>
+
 Of rechtstreeks via CSGO.
+
 🅰️ Stream - Open console: playcast "https://gotv.pglesports.com/match/id/csgo1"
+
 🅱️ Stream - Open console: playcast "https://gotv.pglesports.com/match/id/csgo2"
 
 Links rechtstreeks van Analyst & caster SpunJ zijn twitter
