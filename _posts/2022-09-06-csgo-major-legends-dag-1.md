@@ -34,7 +34,7 @@ Maar Liquid kon echt weinig betekenen de laatste tijd, altijd wedstrijden verlie
 Het zag er niet goed voor het Amerikaanse team met Franse hypeman Shoxx.
 Dat het vers hervormde team van de Denen wat shaky speelt is ook zeker waar, maar met hun ervaring als ex-major winnaars lag de verwachting dan misschien net wat hoger.
 Wat we te zien kregen op map 1 Vertigo was dan misschien net niet minder dan een mirakel van BlameF. Hij heeft letterlijk 40 kills gehaald in zoals dat heet "regulation", dit wil zeggen alle 30 ronden die gespeeld kunnen worden tot een overtime.
-40. fucking. kills.
+40(!!!) . fucking. kills.
 Dat bleek na wat onderzoek van de echte CS journalisten van HLTV.org dan ook meteen het hoogste aantal kills ooit voor een major.
 Dat het zelf niet naar overtime ging in de eerste map is dan ook echt een tristesse. Een zware mentale dip voor de Denen vrees ik, en het gemoed van vooral BlameF moet denk ik van de grond geschraapt worden.
 Hij was de best performende speler op het hele tornooi tot dusver over alle teams heen nota bene.
@@ -54,7 +54,7 @@ Wij denken dan ook dat dit zijn laatste tornooi was met deze lineup.
 
 🇽🇰 BNE > MIBR🇧🇷
 
-Dat ik bNE al paar keer heb opgehemelt op social media wil ik niet onder stoelen of banken steken. Dat zij zonder organisatie kunnen doorstoten naar de Legends stage is ongezien, en als ik me niet vergis ook een van de eerste keren ooit in een major.
+Dat ik bNE al paar keer heb opgehemeld op social media wil ik niet onder stoelen of banken steken. Dat zij zonder organisatie kunnen doorstoten naar de Legends stage is ongezien, en als ik me niet vergis ook een van de eerste keren ooit in een major.
 En met wat voor een performance!
 Nuke startte rigoN met een insane clean 4 kills met de USP. Hij was er zo trots op dat hij zelfs rechtsprong en zijn handen van muis & keyboard haalde om te vieren dat hij vergat dat er nog een speler moest uitgeschakelt worden van het ander team.
 Gelukkig kon zijn team daar korte metten mee maken en was de toon gezet. bNE kwam om te bewijzen dat ze veel kunnen betekenen in de internationale scene. Van internetcafé spelers die niet eens allemaal eigen computers hebben naar de Legends stage, dat kwamen ze bewijzen dat het gewoon kan.
@@ -68,7 +68,7 @@ Maar met een underperformende Braziliaan Tuurtle & een zeer goed performende Kos
 Ik verwachtte eigenlijk niet zoveel van deze match, forZe had bijna een clean 3-0 in de challenger stage. Met een kleine dropoff tegen Vitality waar ze wel de eerste map binnenhaalden.
 Dus hadden we allemaal verwacht dat ze er allang door zouden zijn, maar dan moesten ze enkel nog even dit boomerclubje naar huis spelen om door te stoten.
 En ik denk dat ze daar ook vanuit zijn gegaan, want met die mentaliteit speelden ze precies ook.
-Dat het vuur bij de boomers was aangewakkert was duidelijk want ze hadden precies door dat er een kans was dat ze weeral Legends konden worden?
+Dat het vuur bij de boomers was aangewakkerd was duidelijk want ze hadden precies door dat er een kans was dat ze weeral Legends konden worden?
 Wat we te zien krijgen was een pracht spel waar forZe er eigenlijk niet eens echt aan te pas kwam.
 2 keer 16-5 is dan ook bijzonder pijnlijk voor de forZe squad, die mentaal al in de Legends stage zat vrees ik. Maar nu met een enorm koude douche terug naar huis wordt gestuurd.
 
@@ -88,8 +88,8 @@ Er is enorm veel over te zeggen, en er waarschijnlijk een enorm zware druk. Maar
 We hebben alvast een foto te zien gekregen waar alle 5 de spelers op stonden wat alvast positief lijkt te zijn.
 Ze zijn hier dan ook als voormalig wereldkampioen en dus major winnaar om hun titel te gaan verdedigen. Wat de NaVi era moest worden is al een paar maanden zoek, met misschien logische redenen.
 
-Dat zij hun openings match net moeten gaan spelen tegen G2, die er tot nu toe als squad vrij belovend uitzien, beloofd dan ook een banger van formaat te gaan worden. Al wrijvend in de handjes zit ik alvast klaar.
-G2 met nog de adrenaline pompent van afgelopen week tegen de vorige major winnaar die dan op hun beurt wat perikelen blijken te hebben.
+Dat zij hun openings match net moeten gaan spelen tegen G2, die er tot nu toe als squad vrij belovend uitzien, belooft dan ook een banger van formaat te gaan worden. Al wrijvend in de handjes zit ik alvast klaar.
+G2 met nog de adrenaline pompend van afgelopen week tegen de vorige major winnaar die dan op hun beurt wat perikelen blijken te hebben.
 De nummer 1 speler ter wereld tegen het meest belovende talent aanwezig. Dit kan niet anders dan een goede wedstrijd worden.
 En dat allemaal om 15:45.
 
@@ -101,8 +101,8 @@ Met recent wins over Entropiq, NIP & Eternal Fire kunnen we stellen dat het zeke
 Zij moeten het wel gaan opnemen tegen bNE, die net knallers van formaat hebben geleverd de afgelopen dagen. Of CHF warm genoeg gaat staan om het Kosovaarse powerhouse tegen te gaan betwijfel ik dan ook een beetje. Maar kan zeker een fijne game gaan worden.
 
 Erna gaan we NIP vs Vitality zien. NIP is een momenteel wel een beetje een gebroken team.
-Met veel player swaps het laatste 1.5 jaar zonder echt veel progress. Een onwijs getalenteert team, die het maar niet lukt om consequent titels te gaan binnen halen.
-Insane fragggers zoals Rez die het voortouw moeten gaan nemen, met in zijn kielzog spelers als Plopski, die misschien opgehemelt werd als hot talent, maar het toch net niet kan gaan waarmaken soms.
+Met veel player swaps het laatste 1.5 jaar zonder echt veel progress. Een onwijs getalenteerd team, die het maar niet lukt om consequent titels te gaan binnen halen.
+Insane fragggers zoals Rez die het voortouw moeten gaan nemen, met in zijn kielzog spelers als Plopski, die misschien opgehemeld werd als hot talent, maar het toch net niet kan gaan waarmaken soms.
 Ze gooiden het dan over een andere boeg zoals dat ze Dev1ce kochten voor 1 miljoen om zo titels te gaan binnen harken.
 Dat net die speler een burnout kreeg van het spel was dan ook een zware bummer.
 De immens zware druk waar deze spelers komen onder te staan is niet te onderschatten. Het is dan maar een schietspelletje, maar de duizenden death threats zijn niet te onderschatten bovenop de druk die je krijgt van management, sponsors & zelf je eigen team.
@@ -140,8 +140,8 @@ Laten we hopen dat het een leuke match wordt alvast ;)
 
 Veel kijk plezier en tot op Twitter! <https://www.twitter.com/jnoxxx>
 Voor alle andere manieren om de wedstrijden te kijken kan je terecht op
-🅰️ Stream http://twitch.tv/pgl
-🅱️ Stream http://twitch.tv/pgl_csgo
+🅰️ Stream <http://twitch.tv/pgl>
+🅱️ Stream <http://twitch.tv/pgl_csgo>
 Youtube, in 4K waar je kan terugspoelen.
 Het eigen platform van PGL.
 <https://csgo.pglesports.com>
