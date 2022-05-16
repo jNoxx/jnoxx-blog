@@ -14,7 +14,7 @@ NaVi dartelde als jong veulen door de Legends stage helemaal naar de play-offs. 
 
 ## Wedstrijden zondag
 
-Met Outsiders die het moest gaan opnemen tegen Ence verwachtte we wel een iets spannendere match.
+Met Outsiders die het moest gaan opnemen tegen Ence verwachtte ik wel een iets spannendere match.
 Alhoewel ik me direct moet tegenspreken, dat Outsiders zover in dit tornooi is geraakt is wel te danken aan Jame, die 2 van zijn meest insane clutches ooit heeft gehaald in de RMR.
 Tot twee maal toe heeft hij in de 15-14 tegen hun in de finale derde map een clutch kunnen halen met luttele milliseconden op overschot.
 Eenmaal deed hij het tegen Dignitas, waar hij een insane clutch op de A site van Inferno kon verwezenlijken. En eenmaal tegen de boys van SAW. Waar ze al zeker waren dat ze de ronde binnen hadden op de B site op Inferno. Erger nog, met paar zieke kills was SAW het aan het afwerken om op de 3e finale map Inferno, enkel Jame leefde nog, ook met de "niet zo gewenste in een retake" AWP.
@@ -26,14 +26,14 @@ Lang verhaal om te vertellen dat Ence hen om de oren heeft geslaan met 16-8.
 
 Heroic vs G2 ging een banger van formaat zijn, en keek ik enorm naar uit, dit was een 1-1 match, wat betekent, dat wie deze match verliest op de rand staat van eliminatie, en dat is jammer genoeg G2 geworden in deze matchup.
 Dat de Denen duidelijk de demos van G2 hebben bekeken van te voren was duidelijk te zien. Ze konden altijd NiKo gaan isoleren, wat de top fragger van de G2 squad zou moeten zijn, en elke keer werd hij erbij gelapt. Dat hij als bottom fragger na een overtime match nog altijd maar slechts 17 kills heeft gehaald is niet iets wat we gewoon zijn om te zien. Onze verbazing was dan ook groot dat Hunter weeral het voortouw moest gaan nemen.
-Darmee willen we niets wegpakken van de spelers van Heroic. Enkel ben ik niet de grootste Heroic supporter, ik admireer hun passie voor de game enorm.
+Daarmee willen we niets wegpakken van de spelers van Heroic. Enkel ben ik niet de grootste Heroic supporter, ik admireer hun passie voor de game enorm.
 Maar wel even aanstippen dat Heroic hun coach Hunden gebanned is voor de befaamde coaching bug. Waar ik momenteel niet over ga uitwijden.
 Dus ze letterlijk "gecheat" hebben in meerdere matches. Maar ze zijn duidelijk favoriet bij de organisatie die zich boog over wie gebanned werd en wie niet. Want we zien hier spelers spelen, die 100% zeker wisten dat er gecheat is geweest.
 Dus aan de ene kant snap ik de euforie dat ze nu kunnen laten zien dat ze het legaal kunnen, maar aan de andere kant zien we top talent spelers zoals Jampii die jaren is gebanned in zijn tienerjaren van CS Majors omdat hij al dan niet een 2e account zou hebben gehad die gebanned is geweest. De straffen en wetten rond alles liggen ook niet op papier vast, dus het is momenteel het wilde westen als het daarop neerkomt.
 Dat Heroic in overtime nipt de win kan pakken zal wel hard aangekomen zijn bij G2, waarbij veel mensen er van uit gingen dat ze makkelijk naar de Play-offs zouden doorstoten.
 19-17 voor de Denen.
 
-Furia liet de spierballen rollen tov BIG. Het lukt BIG maar niet om me te imponeren. Ze hebben zeker een goede lineup, maar voorlopig zien we dat ze toch terug enorm strugglen bij Tier 1 events. Terwijl ze jaren in de top teams hebben gezweeft. Met een 16-10 win over de Duitsers gaat het Braziliaans volk helemaal wild!
+Furia liet de spierballen rollen tov BIG. Het lukt BIG maar niet om me te imponeren. Ze hebben zeker een goede lineup, maar voorlopig zien we dat ze toch terug enorm strugglen bij Tier 1 events. Terwijl ze jaren in de top teams hebben gezweefd. Met een 16-10 win over de Duitsers gaat het Braziliaans volk helemaal wild!
 
 De eerste eliminatie wedstrijden stonden ook gepland, met Vitality tegen Liquid werd het vechten voor een kans om in het tornooi te blijven.
 Alleen waren de Amerikanen vergeten dat ze effectief moeite moesten doen en dat het niet in hun schoot ging geworpen worden.
@@ -80,7 +80,7 @@ Dat NaVi een raar spelletje CS speelde viel ook op. Ze liepen door smokes, speel
 
 ## Final matchups voor maandag.
 
-Mijn predicties had ik al op Twitter gegooit. <https://www.twitter.com/jnoxxx> - Ja met die X'en omdat mijn naam al gejoinked was.
+Mijn predicties had ik al op Twitter gegooid. <https://www.twitter.com/jnoxxx> - Ja met die X'en omdat mijn naam al gejoinked was.
 
 FaZe > CPH Flames
 
