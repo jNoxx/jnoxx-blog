@@ -15,7 +15,7 @@ Smoke bugs, wipeouts en timeouts. We kregen alles.
 
 ## Wedstrijden zaterdag
 
-Copenhagen Flames nam het op tegen bNE. Ik had voorspelt dat bNE de win ging binnen halen, omdat ze tot nu toe geweldige resultaten hadden neergezet. Puur door hun volharding en pure passie.
+Copenhagen Flames nam het op tegen bNE. Ik had voorspeld dat bNE de win ging binnen halen, omdat ze tot nu toe geweldige resultaten hadden neergezet. Puur door hun volharding en pure passie.
 Dat ze na een nagelbijtende wedstrijd, waar het 14-14 werd, 1 cruciale fout hebben gemaakt, die hen de 16-14 loss opleverde kwam als een einde aan een fairy tale.
 bNE merkt dat het niet meer met de Tier 2 CS'ers te maken heeft, en nu tegen de big boys moeten spelen. Maar ze lieten wel zien dat ze meekunnen. De onervarenheid brak hen nu net nog zuur op. Maar wat een fairytale story so far.
 
@@ -37,7 +37,7 @@ Wel wil ik nog een fout rechtzetten, ik vertelde gister dat ze de Virtus Pro squ
 Deze game was wel enorm fijn om te kijken. Twee teams die zo aan elkaar gewaagd zijn die het opnemen op Mirage, wat een thuis map is voor beide teams.
 Dan kan je alleen maar goede CS te zien krijgen. Met enorm close rondjes naar het einde toe, waar het bijna eender wiens game werd. Kon Cloud9 het toch uitgrinden. 16-12 voor C9
 
-Faze vs Ence. Pijnlijke start voor het Faze team. Maar exact zoals ik in het begin had verwacht, en waarom ik hun nooit op 3-0 zou zetten. Faze performed niet als ze geen druk voelen. En dat zagen we, een zeer onopgewarmt team werd naar huis geschoten door Ence. En dat als nummer 1 van de wereld en een van de topfavorieten van dit tornooi maar ze kwamen er blijkbaar niet eens echt aan te pas.
+Faze vs Ence. Pijnlijke start voor het Faze team. Maar exact zoals ik in het begin had verwacht, en waarom ik hun nooit op 3-0 zou zetten. Faze performed niet als ze geen druk voelen. En dat zagen we, een zeer onopgewarmd team werd naar huis geschoten door Ence. En dat als nummer 1 van de wereld en een van de topfavorieten van dit tornooi maar ze kwamen er blijkbaar niet eens echt aan te pas.
 Dat er enorm mooie crisp shots zijn gemaakt door Faze staat sowieso buiten de kwestie, deze top talentjes kunnen veel. Behalve rondjes afwerken zo blijkt.
 Wel vind ik dat Rain weeral onder verwachting speelt, en zeker met maar 8 kills toch ver onder de verwachting speelt. Dat niemand van Faze een positieve KD kan neerpoten is bijzonder pijnlijk.
 16-8 voor Ence
