@@ -14,11 +14,11 @@ Wat er gister tentoongesteld werd was een prachtig huzarenstukje Counter-Strike.
 
 ## Wedstrijden maandag
 
-Faze mocht het gaan opnemen tegen CPH Flames. Niet echt een matchup dat we als een interessante match zagen. Maar de CPH Flames hadden ons al eerder verrast deze week. Dus was wel benieuwd. Faze starte bijzonder vlot aan de eerste 3 rondes T side op Inferno, dus iedereen begon al half af te haken. Tot CPH er genoeg van had, en ze wouden bewijzen dat ze wel wat in petto hadden. Met (bijna) 10 rondes op rij konden ze dan ook enig CS fan imponeren.
-Faze begon wel wat zweet stempeltjes op hun stoelen achter te laten. Dat FaZe als een stelletje klungels op de server aanwezig was was duidelijk, elke positie die ze aannamen werd gemakkelijk gecountert. CPHF rende gewoon door smokes om posities te gaan afdwingen & FaZe was hier duidelijk niet op voorbereid, ettelijke malen stonden ze met hun broek op hun enkels met een smoke in hun handen of al wegspringtend met hun mes vast. En dat zagen we dan ook in de eindscore, toen CPHF de eindscore van 16-13 haalde begon de paniek toe te slaan vrees ik bij de FaZe squad.
+Faze mocht het gaan opnemen tegen CPH Flames. Niet echt een matchup dat we als een interessante match zagen. Maar de CPH Flames hadden ons al eerder verrast deze week. Dus was wel benieuwd. Faze startte bijzonder vlot aan de eerste 3 rondes T side op Inferno, dus iedereen begon al half af te haken. Tot CPH er genoeg van had, en ze wouden bewijzen dat ze wel wat in petto hadden. Met (bijna) 10 rondes op rij konden ze dan ook menig CS fan imponeren.
+Faze begon wel wat zweet stempeltjes op hun stoelen achter te laten. Dat FaZe als een stelletje klungels op de server aanwezig was was duidelijk, elke positie die ze aannamen werd gemakkelijk gecounterd. CPHF rende gewoon door smokes om posities te gaan afdwingen & FaZe was hier duidelijk niet op voorbereid, ettelijke malen stonden ze met hun broek op hun enkels met een smoke in hun handen of al wegsprintend met hun mes vast. En dat zagen we dan ook in de eindscore, toen CPHF de eindscore van 16-13 haalde begon de paniek toe te slaan vrees ik bij de FaZe squad.
 
-Dat FaZe wou laten zien dat ze dominant genoeg zijn bewezen ze bij het begin van Ancient. Rain als het ware met zijn innerlijke wallhacks schoot CPHF al door de muren voor ze nog maar de kans hadden om iets te gaan uitvoeren. Dat FaZe de 12-3 leiding nam verbaasde niemand, met een geeuw leunde we achteruit in onze stoel toen we keken hoe dominant deze CT side was van FaZe.
-Met misschien een foute verwachting startte ze dan aan hun T side, ze haalden vlot de Pistol round & opvolger binnen. Toen het al 14-3 was, leek de klus dan ook al zo wat geklaard.
+Dat FaZe wou laten zien dat ze dominant genoeg zijn bewezen ze bij het begin van Ancient. Rain als het ware met zijn innerlijke wallhacks schoot CPHF al door de muren voor ze nog maar de kans hadden om iets te gaan uitvoeren. Dat FaZe de 12-3 leiding nam verbaasde niemand, met een geeuw leunden we achteruit in onze stoel toen we keken hoe dominant deze CT side was van FaZe.
+Met misschien een foute verwachting startten ze dan aan hun T side, ze haalden vlot de Pistol round & opvolger binnen. Toen het al 14-3 was, leek de klus dan ook al zo wat geklaard.
 Toen had CPHF er genoeg van, en haalden ze loeihard uit naar de FaZe clan, met weer bijna 10 rondjes op rij was FaZe nogal in paniek. Ze hadden 1 rondje nog kunnen afsnoepen maar daar stopte het dan ook. Toen het echter 15-13 werd begon de druk toe te slaan en kon FaZe de finale mokerslag geven.
 De tweede map was voor het internationaal superteam FaZe.
 
@@ -39,7 +39,7 @@ Dat Dupreeh & Magisk echter beide zo goed als geen kills haalden in de overtime 
 Dat Magisk eindelijk in actie schoot in de overtime was dan ook een godsgeschenk. Elke speler heeft gevochten tot ze erbij neer vielen, en daar mag het team dan ook enorm trots op zijn.
 Met een finale 19-17 krijgen ze hun allerlaaste kans vandaag.
 
-Furia ging het opnemen tegen NiP. Ik had voorspelt dat NiP deze match wel eens kon gaan winnen als ze mentaal konden terug komen van hun match tegen NaVi de dag ervoor.
+Furia ging het opnemen tegen NiP. Ik had voorspeld dat NiP deze match wel eens kon gaan winnen als ze mentaal konden terug komen van hun match tegen NaVi de dag ervoor.
 Bij de eerste map zagen we al snel dat ze naar de boys van Men in Black waren gegaan en de match hadden laten wissen uit hun geheugen.
 Met een 16-2 (!!!) scoreline leek het alsof NiP dacht dat ze nog in de warmup lobby zaten. Het leek zelf vaak niet eens moeilijk voor hun. Alles leek in de juiste plooi te vallen voor hun. Een waanzinnige prestatie tegen een team zoals Furia.
 
@@ -53,8 +53,8 @@ Met de eerste map Inferno kon G2 redelijk goed de toon zetten, alhoewel hun CT s
 Vertigo is een van Outsiders top maps, en dat merkte G2. Ze werden constant gecountered, waarschijnlijk ook door demo analysis van de wedstrijd tegen Heroic. Want ze werden vaak verrast door exacte goede counters van Outsiders.
 Dat Outsiders deze map met 16-10 was dan ook geen verrassing.
 
-Met De Dust 2 als laatste, leek het graf gegraven voor G2, Outsiders zette goed de toon op hun T side, G2 kon hun moeilijk counteren en werd vaak verrast door strakke kort pushes of net keiharde B pushes waar G2 altijd met util in hun handen stond en niet wist waar eerst te kijken en volledig overrompelt werden.
-Dat G2 zoveel rondes op T side kon gaan winnen lag volledig aan Outsiders die een verschrikkelijke CT side neerpoten, ze werden letterlijk ook overrompelt. Veel misses die we niet gewoon zijn van te zien, zeker niet van zo'n top team.
+Met De Dust 2 als laatste, leek het graf gegraven voor G2, Outsiders zette goed de toon op hun T side, G2 kon hun moeilijk counteren en werd vaak verrast door strakke kort pushes of net keiharde B pushes waar G2 altijd met util in hun handen stond en niet wist waar eerst te kijken en volledig overrompeld werden.
+Dat G2 zoveel rondes op T side kon gaan winnen lag volledig aan Outsiders die een verschrikkelijke CT side neerpoten, ze werden letterlijk ook omver gelopen als een kudde olifanten. Veel misses die we niet gewoon zijn van te zien, zeker niet van zo'n top team.
 Dat G2 deze map won, was eigenlijk bijna een mirakel, al klinkt het raar dat ik het zo moet zeggen als je de 16-11 scoreline ziet. Maar als je de match bekijkt zie je dat dit vooral toe te dragen is dat Outsiders zware fouten maakte in plaats van de G2 squad die goed bezig was.
 Niko & m0nesy als power duo toonde wel dat de kills konden gemaakt worden.
 Outsiders naar huis en G2 die nog een finale kans krijgt om te advancen.
