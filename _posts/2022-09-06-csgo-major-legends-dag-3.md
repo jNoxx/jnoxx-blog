@@ -80,7 +80,7 @@ Dat NaVi een raar spelletje CS speelde viel ook op. Ze liepen door smokes, speel
 
 ## Final matchups voor maandag.
 
-Mijn predicties had ik al op Twitter gegooid. <https://www.twitter.com/jnoxxx> - Ja met die X'en omdat mijn naam al gejoinked was.
+Mijn predicties had ik al op Twitter gegooid. <https://www.twitter.com/jnoxxx> - Ja met drie X'en omdat mijn naam al gejoinked was.
 
 FaZe > CPH Flames
 
