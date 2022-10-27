@@ -6,7 +6,7 @@ categories: gaming
 featured_image: /images/unchartedlot.jpg
 ---
 
-Oude klassiekers & Prachtige ports
+Oude klassiekers & Prachtige pc port
 
 ## Review
 
