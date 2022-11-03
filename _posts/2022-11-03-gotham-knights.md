@@ -8,7 +8,7 @@ featured_image: /images/gotham_knights.jpg
 
 Gemiste kansen die nog kans hebben
 
-## Review
+## Preview
 
 Gevraagd worden voor een Launch event is altijd een leuke aangelegenheid, met de leden van Game Kast mochten we dan ook onze eigen mening gaan klaarstomen voor het publiek.
 
