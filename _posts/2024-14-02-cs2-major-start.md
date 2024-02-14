@@ -1,7 +1,7 @@
 ---
 layout: post
-title: "Trifox - Steamdeck"
-date: 2022-11-06 10:00:00
+title: "First CS2 Major - PGL Copenhagen 2024"
+date: 2024-14-02 22:00:00
 categories: gaming
 featured_image: /images/majorcs2c.jpg
 ---
