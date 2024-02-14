@@ -1,7 +1,7 @@
 ---
 layout: post
 title: "First CS2 Major - PGL Copenhagen 2024"
-date: 2024-14-02 22:00:00
+date: 2024-02-14 22:00:00
 categories: gaming
 featured_image: /images/majorcs2c.jpg
 ---
